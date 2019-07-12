@@ -117,7 +117,7 @@ Effective disclosure must eventually account for the disturbing. There are repor
 
 And of course, we would likely want an explanation for our long history of suffering despite their awareness and advanced technology. 
 
-![Alien Intervention Table](C:\wamp64\www\x\table-1.jpg)
+![Alien Intervention Table](table-1.jpg)
 
 *How many scenarios above are you comfortable with?*
 
