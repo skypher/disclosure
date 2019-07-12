@@ -2,6 +2,8 @@
 
 This project's purpose is analysis and public accessibility to the developing UAP situation for optimal outcomes.
 
+---
+
 ## Notice
 
 I have never worked for the United States government as a contractor or otherwise. As a dual American-Canadian citizen, I would likely not be privy to classified information. All information herein was derived from public sources. Speculation is lawful. TTSA (To The Stars Academy of Arts & Science) has chosen to ignore my prior two (logged) communication attempts. It is possible the TTSA and DoD actually encourages public speculation as related to this project. GitHub is a logical choice to have such an important conversation, as the platform promotes transparency and critical input. Therefore, this may be an evolving project as disclosure unfolds.
