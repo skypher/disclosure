@@ -70,6 +70,8 @@ Without verifiable information, the American public can be compromised. TTSA and
 
 Hypothetical vulnerability examples:
 
+> Aliens saved us from catastrophic solar activity on [July 2, 2019]. Since that time, we have learned more about them. They have earned our trust. In return, we will do [X].
+>
 > "The aliens we must invade [country] or they will attack us with their technology." (Remember, experts have already claimed defense inferiority, so this is possible.)
 
 > "The aliens said we can basically ignore global warming for another 50 years, so we can safely continue our use of fossil fuels without worry."
