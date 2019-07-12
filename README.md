@@ -129,9 +129,7 @@ Disclosure does not appear to be an elaborate fiasco to drum up support for a sp
 
 We cannot deny the intent and intelligence behind the phenomena. Based on what has been observed by worldwide militaries and civilians, we must act soon. At a minimum, it may be plausible to say we are under observation. Observation suggests interest and possible experimentation. The observers may have calculated cataclysmic tipping points. Since they appear to be potentially hostile, invulnerable, and show interest in us, the invocation of a nonaggressive mass novelty event, particularly a direct change or awareness of them, may be our only move. Therefore, rapid and careful disclosure may be wise.
 
-Currently, the powers that be are leading a dangerous and dysfunctional disclosure campaign. If continued without major overhaul, we may experience serious harm from humans, if not aliens. If we use the alien presence as a basis for war or # Disclosure
-
-This project's purpose is analysis and public accessibility to the developing UAP situation for optimal outcomes.
+Currently, the powers that be are leading a dangerous and dysfunctional disclosure campaign. If continued without major overhaul, we may experience serious harm from humans, if not aliens. If we use the alien presence as a basis for war or deception, our fate is assured.
 
 ---
 
