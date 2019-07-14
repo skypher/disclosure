@@ -52,7 +52,7 @@ The TTSA/DoD endeavors conflict; perhaps by design. Such conflict creates suspic
 
 Based on Unidentified S01E06, no exaggeration is required to state the US government is now in possession of, or posturing, a theoretical method to communicate with an advanced alien intelligence that is described as threatening. Since the technology involves a "radio beacon," and the US government has developed radio beacons, perhaps the government will soon succeed with alien communication.
 
-Lastly, an intelligence capable of constructing the inconceivably advanced "Tic Tac" craft observed in the 2004 USS Nimitz encounter could probably figure out how to communicate with us by imparting recognizable pictures in deserts or crop fields. If they wanted to communicate with everyone, reason suggests they could have done so. 
+Lastly, an intelligence capable of constructing the inconceivably advanced "Tic Tac" craft observed in the 2004 USS Nimitz encounter could probably figure out how to communicate with us by imparting recognizable pictures in clouds or crop fields. If they wanted to communicate with everyone, reason suggests they could have done so. 
 
 Do you see a huge problem? As described next, we become more vulnerable, we do not know what to believe, and trust erodes.
 
