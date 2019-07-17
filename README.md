@@ -70,27 +70,31 @@ Without verifiable information, the American public can be compromised. TTSA and
 
 Hypothetical vulnerability examples:
 
-> "Aliens saved us from catastrophic solar activity on [July 2, 2019]. Since that time, we have learned more about them. They have earned our trust. In return, we will do [X]."
-
-> "In secret, they have tended to the needs of the planet for eons. They have a right to [X]."
-
-> "We will upset the aliens unless we [attack]."
-
-> "The aliens said we can basically ignore global warming for another 50 years, so we can safely continue our use of fossil fuels without worry."
-
-> "Aliens support [politician] in office."
-
-> "Aliens interfered with [country’s] election process."
-
-> "Aliens have determined that the Constitution is fundamentally flawed and they have proposed the following changes..."
-
-> "The aliens have determined we must do [X] to avert crisis."
+> "Aliens saved us from [catastrophic solar activity] on [July 2, 2019]. We can trust them."
 
 > "In exchange for alien technology that will save the world, we must do [X]."
 
-> "People of [country]: after decades of research, our great scientists and engineers have learned to communicate with alien intelligence. America’s claims are simply false. Bear witness to the truth. Unite! Our moment of glory is upon us!"
+> "They have been here for thousands of years. They have more right to this planet than we do."
 
-> "The aliens (but really humans) attacked innocent [Americans/Chinese/Russians/Europeans/etc.] with exotic (classified) weapons throughout portions of [city]."
+> "We would still be monkeys if it wasn't for them."
+
+> "Life would have been very different on this planet if it wasn't for them."
+
+> "We have alien approval to [attack]."
+
+> "The [Chinese] (but really aliens) attacked innocent [Americans]."
+
+> "According to alien analysis, we can [ignore] [global warming] for [another 50 years]. For now, we will [continue course]."
+
+> "Aliens support [politician] in [office]."
+
+> "Aliens [interfered] with [Isreal's] [election process]."
+
+> "Aliens have determined the [Constitution] to be unsustainable. They propose the following changes..."
+
+> "The aliens have determined we must do [X] to avert crisis."
+
+> "People of [country]: after decades of research, our great scientists and engineers have learned to communicate with alien intelligence. [America’s] claims are simply false. Bear witness to the truth. Unite! Our moment of glory is upon us!"
 
 **Use your imagination. Real or otherwise, the US government will essentially be whispering to gods, or claim to be, which may be worse. The situation allows for perfect proxy warfare.** How do we know aliens will not show up and set the record straight via force? As it stands, UAP buzz naval fleets in an intimidating fashion and have interfered with missile systems. They are playing with fire.
 
