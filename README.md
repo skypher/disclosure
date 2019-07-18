@@ -174,7 +174,7 @@ Key points:
 5. Dwight D. Eisenhower's "embedded citizens" are ready.
 6. *TODO: complete watching presentation*
 
-Though TTSA has led a questionable effort, the above is alarmingly consistent with DeLonge's interviews and the actions taken thus far by TTSA. Perhaps the government, out of desperation, did in fact tell him a number of highly sensitive things and assisted with TTSA in hopes of progress.
+Though TTSA has led a questionable effort, the above is alarmingly consistent with DeLonge's interviews and the actions taken thus far by TTSA. Perhaps the government, out of desperation, did in fact tell him a number of highly sensitive things and assisted with TTSA in hopes of progress, which arguably could have gone better.
 
 ---
 
