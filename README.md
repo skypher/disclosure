@@ -163,7 +163,7 @@ Essentially, this alien message shares the sentiments of this project, or rather
 
 Like the crop circle, other forms of alien communication may exist. Communication must be authenticated by aliens via novel technology or otherwise unknown, but demonstrably true, information. However, the complexity of this information must be limited for human comprehension. Inherently, this creates suspicion, so we must entertain mathematical coincidence for all possible alien narratives. 
 
-Lastly, watch this video: https://www.youtube.com/watch?v=gA1gF8FtyoI. Skeptics: what is your explanation for the four-way binary?
+Lastly, watch this video: https://www.youtube.com/watch?v=gA1gF8FtyoI. Skeptics: though the presenter may rely on pareidolia instead of more stringent means, what is your explanation for the four-way binary?
 
 Key points:
 
