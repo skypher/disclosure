@@ -172,14 +172,18 @@ Key points:
 3. Multiple types of grey aliens exist. The Emerthers are the "good guys." Those from Orion and Zeta Reticuli are bad.
 4. Avoid signals/messages from the bad groups.
 5. Dwight D. Eisenhower's "embedded citizens" are ready.
-6. TODO: complete watching presentation
+6. *TODO: complete watching presentation*
 
 Though TTSA has led a questionable effort, the above is alarmingly consistent with DeLonge's interviews and the actions taken thus far by TTSA. Perhaps the government, out of desperation, did in fact tell him a number of highly sensitive things and assisted with TTSA in hopes of progress.
+
+---
 
 (This is a work in progress with more changes to be made.)
 
 TODO: obtain crop circle interpretation book.
+
 TODO: check for any consistencies with crop circle message vs. government acting soon after.
+
 TODO: look for further connections between Q and phenomena.
 
 ---
