@@ -180,6 +180,7 @@ Though TTSA has led a questionable effort, the above is alarmingly consistent wi
 
 TODO: obtain crop circle interpretation book.
 TODO: check for any consistencies with crop circle message vs. government acting soon after.
+TODO: look for further connections between Q and phenomena.
 
 ---
 
