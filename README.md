@@ -1,12 +1,12 @@
 # Disclosure
 
-This project's purpose is analysis and public accessibility to the developing UAP situation for optimal outcomes.
+This project's purpose is to assist disclosure and evolution.
 
 ---
 
 ## Notice
 
-Before considering negative action, consider if such action is consistent with your better nature. I have never worked for the United States government as a contractor or otherwise. As a dual American-Canadian citizen, I would likely not be privy to classified information. All information herein was derived from public sources. Speculation is lawful. TTSA (To The Stars Academy of Arts & Science) has chosen to ignore my prior two (logged) communication attempts. It is possible the TTSA and DoD actually encourages public speculation as related to this project. GitHub is a logical choice to have such an important conversation, as the platform promotes transparency and critical input. Also, opposition should not seek to subvert a technological cornerstone. Therefore, this may be an evolving project as disclosure unfolds.
+Before considering negative action, consider if such action is consistent with your better nature. I have never worked for the United States government as a contractor or otherwise. As a dual American-Canadian citizen, I would likely not be privy to classified information. All information herein was derived from public sources. Speculation is lawful. It is possible the TTSA and DoD actually encourages public speculation as related to this project. GitHub is a logical choice to have such an important conversation, as the platform promotes transparency and critical input. Also, opposition should not seek to subvert a technological cornerstone. Therefore, this may be an evolving project as disclosure unfolds.
 
 Do not share classified information. All information is to be considered speculation unless evidenced from unclassified, public sources.
 
@@ -32,7 +32,7 @@ Notably, the same official goes on to say:
 
 In response, Tom DeLonge, founder of TTSA says:
 
-> “Communication."
+> "Communication."
 
 The official indicates support of Tom's idea. 
 
@@ -46,9 +46,9 @@ The Italian meeting wraps with the show's narrator stating:
 
 Later in the episode at approximately 29 minutes, 30 seconds, Elizondo and DeLonge allegedly meet with three active US military intelligence officers. The meeting is shown. The officers are blurred. During the meeting, Elizondo shares information obtained from the Italian government. Elizondo states the US government continues to actively run the "effort" (presumably a form of AATIP) with "official blessing." Clearly, the message is that the US government continues to study UAP.
 
-For background, in multiple instances in Unidentified and national news, Elizondo and others (i.e. Christopher Mellon, former United States Deputy Assistant Secretary of Defense for Intelligence) have categorically stated the US military cannot protect us against UAP-level technology. The highly credentialed TTSA team would know this, and if they are affiliated with the DoD (as it appears), immediate surrender is an interesting notion to publicly repeat, even if logic agrees. Regarding the TTSA/DoD sanctioned effort theory, If Mellon, Elizondo, et al. were truly a defiant group releasing sensitive information without DoD approval (inclusive of “we won’t stop you” plausible deniability), at minimum, their security clearances would be revoked.
+For background, in multiple instances in Unidentified and national news, Elizondo and others (i.e. Christopher Mellon, former United States Deputy Assistant Secretary of Defense for Intelligence) have categorically stated the US military cannot protect us against UAP-level technology. The highly credentialed TTSA team would know this, and if they are affiliated with the DoD (as it appears), immediate surrender is an interesting notion to publicly repeat, even if logic agrees. Regarding the TTSA/DoD sanctioned effort theory, If Mellon, Elizondo, et al. were truly a defiant group releasing sensitive information without DoD approval (inclusive of "we won't stop you" plausible deniability), at minimum, their security clearances would be revoked.
 
-The TTSA/DoD endeavors conflict; perhaps by design. Such conflict creates suspicion and is ultimately dangerous. If the TTSA and/or DoD are trying to “come clean” regarding UAP as suggested by TTSA, conflicting messages should be avoided. Otherwise, it all looks like a psyop that fuels conspiracy, which directly contradicts TTSA’s mission and credibility, thus fueling the conspiracy fire further. If the intentions of the TTSA/DoD are truly earnest, the message to the public must be unified, clear, and eventually provide supportive reasonable explanations as to why UAP has been such a gnarled issue all these years; unless of course TTSA/DoD know something very grave and they find no reason to behave responsibly because “the end is near,” which, had disclosure been handled responsibly thus far, should not even be a plausible thought.
+The TTSA/DoD endeavors conflict; perhaps by design. Such conflict creates suspicion and is ultimately dangerous. If the TTSA and/or DoD are trying to "come clean" regarding UAP as suggested by TTSA, conflicting messages should be avoided. Otherwise, it all looks like a psyop that fuels conspiracy, which directly contradicts TTSA's mission and credibility, thus fueling the conspiracy fire further. If the intentions of the TTSA/DoD are truly earnest, the message to the public must be unified, clear, and eventually provide supportive reasonable explanations as to why UAP has been such a gnarled issue all these years; unless of course TTSA/DoD know something very grave and they find no reason to behave responsibly because "the end is near," which, had disclosure been handled responsibly thus far, should not even be a plausible thought.
 
 Based on Unidentified S01E06, no exaggeration is required to state the US government is now in possession of, or posturing, a theoretical method to communicate with an advanced alien intelligence that is described as threatening. Since the technology involves a "radio beacon," and the US government has developed radio beacons, perhaps the government will soon succeed with alien communication.
 
@@ -64,9 +64,9 @@ Do you see a huge problem? As described next, we become more vulnerable, we do n
 
 How dangerous and sustainable is that? Can you imagine a situation in which the US claiming it has communicated with aliens would not directly or indirectly endanger mankind? People already have reason to distrust the government. The phrase "absolute power corrupts absolutely" comes to mind. We are now dealing with a situation of absolute power. What will stop abuses of such power? What will stop an adversarial country from sending a missile our way to test if the US is acting on behalf of aliens or protected by alien technology? The US better not bluff.
 
-Without verifiable information, the American public can be compromised. TTSA and the government need to swiftly "come correct." Pandora’s box is open. Lack of critical thinking, cognitive dissonance, distraction, and alternative media focus will only slow public awareness for so long. Humans have a propensity for contagious fear.
+Without verifiable information, the American public can be compromised. TTSA and the government need to swiftly "come correct." Pandora's box is open. Lack of critical thinking, cognitive dissonance, distraction, and alternative media focus will only slow public awareness for so long. Humans have a propensity for contagious fear.
 
-**It does not matter if you believe in or are skeptical of UAP, aliens, or the government’s ability to communicate with them. The fact is, the government will soon be in a position to say, "Advanced intelligence told us X, and they could kill us, so we must do Y."** The US government has acquired or forged the gift of prophecy – unprecedented carte blanche via an alien pen that could well dictate our future. Do you believe everyone in the government, present and future, will just leave that pen in the drawer? Do you think US adversaries will not make similar claims?
+**It does not matter if you believe in or are skeptical of UAP, aliens, or the government's ability to communicate with them. The fact is, the government will soon be in a position to say, "Advanced intelligence told us X, and they could kill us, so we must do Y."** The US government has acquired or forged the gift of prophecy – unprecedented carte blanche via an alien pen that could well dictate our future. Do you believe everyone in the government, present and future, will just leave that pen in the drawer? Do you think US adversaries will not make similar claims?
 
 Hypothetical vulnerability examples:
 
@@ -94,7 +94,7 @@ Hypothetical vulnerability examples:
 
 > "The aliens have determined we must do [X] to avert crisis."
 
-> "People of [country]: after decades of research, our great scientists and engineers have learned to communicate with alien intelligence. [America’s] claims are simply false. Bear witness to the truth. Unite! Our moment of glory is upon us!"
+> "People of [country]: after decades of research, our great scientists and engineers have learned to communicate with alien intelligence. [America's] claims are simply false. Bear witness to the truth. Unite! Our moment of glory is upon us!"
 
 **Use your imagination. Real or otherwise, the US government will essentially be whispering to gods, or claim to be, which may be worse. The situation allows for perfect proxy warfare.** How do we know aliens will not show up and set the record straight via force? As it stands, UAP buzz naval fleets in an intimidating fashion and have interfered with missile systems. They are playing with fire.
 
@@ -102,11 +102,12 @@ Hypothetical vulnerability examples:
 
 ## Food for thought
 
+* Disclosure does not appear to be an elaborate fiasco to drum up support for a space force. For example, Unidentified would have been a perfect opportunity to embolden such a plan. Also, TTSA and unaffiliated experts agree that we are too far behind to defeat them. And recently, when asked about aliens, Trump has ignored opportunities to promote a space force and defense spending.
 * For a false flag alien invasion, human-made advanced aircraft could be costumed with alien-looking lights and structural additions. This is a current threat and may have occurred already.
 * Why would the Italian government wait and share extremely valuable information only during a TV show? It would behoove mankind for the Italians to share this information long ago with the DoD if that was the actual intent. Is that not suspicious?
 * How did TTSA coordinate contact with active military for Unidentified interviews? Did the DoD help?
 * Considering the sensitive subject matter of Unidentified, did the DoD review each episode prior to air?
-* Investigators may seek DeLonge’s security clearance via a FOIA request to the Office of Personnel Management (OPM). After all, he sat alongside three blurred military intelligence officials for a highly sensitive briefing regarding UAP and shared information received from a foreign government. I am not aware of any indication or disclaimer that Unidentified is a dramatization. If DeLonge has no clearance or the FOIA request is fruitless, is that not concerning?
+* Investigators may seek DeLonge's security clearance via a FOIA request to the Office of Personnel Management (OPM). After all, he sat alongside three blurred military intelligence officials for a highly sensitive briefing regarding UAP and shared information received from a foreign government. I am not aware of any indication or disclaimer that Unidentified is a dramatization. If DeLonge has no clearance or the FOIA request is fruitless, is that not concerning?
 * Has DeLonge been afforded a security detail to prevent adversaries from learning alleged alien communication secrets?
 * Are the aliens bending or reflecting light? A straight beam shot from undersea should only hit coastal homes unless the homes are elevated progressively inland.
 * In other episodes of Unidentified, the TTSA offices in California are shown. Is it a convincingly decorated studio? If not, is there a SCIF (Sensitive Compartmented Information Facility) room on-site? I cannot imagine Elizondo and others would discuss classified UAP information from the offices, as pictured in the show. Someone may say something highly classified. There is even a public gift shop on-site, according to DeLonge at 19:30 in this video: https://youtu.be/5s0mnaz5uwI?t=1170. Perhaps TTSA would not mind producing documentation showing that a secure room exists on-site or local municipal building officials have such information? Why regularly depict a lack of OPSEC? Perhaps TTSA and Unidentified are DoD fronts for spreading distorted, self-serving disclosure? Are there no security concerns because the government has already established some form of an agreement with aliens?
@@ -133,11 +134,52 @@ And of course, we would likely want an explanation for our long history of suffe
 
 ## Conclusion
 
-Disclosure does not appear to be an elaborate fiasco to drum up support for a space force. For example, Unidentified would have been a perfect opportunity to embolden such a plan. Also, TTSA and unaffiliated experts agree that we are too far behind to defeat them. And recently, when asked about aliens, Trump has ignored opportunities to promote a space force and defense spending.
+We cannot deny the intelligence behind the phenomena. 
 
-We cannot deny the intent and intelligence behind the phenomena. Based on what has been observed by worldwide militaries and civilians, we must act soon. At a minimum, it may be plausible to say we are under observation. Observation suggests interest and possible experimentation. The observers may have calculated cataclysmic tipping points. Since they appear to be potentially hostile, invulnerable, and show interest in us, the invocation of a nonaggressive mass novelty event, particularly a direct change or awareness of them, may be our only move. Therefore, rapid and careful disclosure may be wise.
+We cannot deny the ongoing dangerous and dysfunctional disclosure campaign.
 
-Currently, the powers that be are leading a dangerous and dysfunctional disclosure campaign. If continued without major overhaul, we may experience serious harm. If we use the alien presence as a basis for war or deception, our fate is assured. 
+If alien communication now must be considered, we should also look for other signs of communication.
+
+Crop circles are largely ignored, dismissed, and ridiculed. However, now that the government is talking about alien communication, perhaps we should look closer. 
+
+For a moment, consider a thought experiment: crop fields are actually a wise communication medium.
+
+Crop circles:
+
+* Are visual communication and lend themselves to accessible analysis. Communication through our other senses would be temporary, startling, confusing, or hold little extractable information. Visuals can be photographed, distributed, preserved, analyzed, and possibly decoded. In comparison, alien radio signals would be received by a select few and therefore could be more readily suppressed or manipulated.
+* Are created in crop fields. Crop fields exist throughout the world. We can analyze the phenomena from the air and ground over time to detect infer hoax. They maintain structure over time. Sand, clouds, etc. are quite ephemeral. 
+* Are public communications. Photographs of crop circles are easily accessible. Also, people with adequate time and intelligence could potentially extract meaning. 
+* Provide significant logistical difficulty to suppress. Crop circles exist in wide open fields. Local reporters, farmers, bystanders, etc. can easily proliferate pictures.
+
+An authentic crop circle is one beyond reasonable human capability given consideration to all conceivable options. Read this analysis: http://www.cropcircleconnector.com/2017/cherhill/comments.html. Into hard science/physics? Read further about Sw J1644+57 here: https://en.wikipedia.org/wiki/GRB_110328A. What are the odds? Why the matching crop circle days before? Who could have created that? Next, watch this video: https://www.youtube.com/watch?v=CGO5aNx2hos. Is he deceiving you or presenting you with logical conclusions that cannot be denied? Aliens are communicating. 
+
+Due to the variety of crop circles and messages, we must consider the possibility of multiple intelligent alien races, species, or collectives.
+
+Read this analysis: http://www.cropcircleconnector.com/anasazi/fringe2014m.html. The alien message is:
+
+> "Beware the bearers of FALSE gifts & their BROKEN PROMISES. Much PAIN but still time. BELIEVE. There is GOOD out there. We OPpose DECEPTION. Conduit CLOSING."
+
+Essentially, this alien message shares the sentiments of this project, or rather, what human reason may conclude. People must be wary of false gifts and broken promises from the powerful, which may well include governments or other alien races with varying agendas. Disclosure must be full, otherwise there is no trust, which is imperative for survival.
+
+Like the crop circle, other forms of alien communication may exist. Communication must be authenticated by aliens via novel technology or otherwise unknown, but demonstrably true, information. However, the complexity of this information must be limited for human comprehension. Inherently, this creates suspicion, so we must entertain mathematical coincidence for all possible alien narratives. 
+
+Lastly, watch this video: https://www.youtube.com/watch?v=gA1gF8FtyoI. Skeptics: what is your explanation for the four-way binary?
+
+Key points:
+
+1. Imminent takeover danger (presumably alien, or alien-influenced) to civilization and call for safe and controlled government disclosure of alien technology.
+2. Carefully release and study perception of disclosure efforts.
+3. Multiple types of grey aliens exist. The Emerthers are the "good guys." Those from Orion and Zeta Reticuli are bad.
+4. Avoid signals/messages from the bad groups.
+5. Dwight D. Eisenhower's "embedded citizens" are ready.
+6. TODO: complete watching presentation
+
+Though TTSA has led a questionable effort, the above is alarmingly consistent with DeLonge's interviews and the actions taken thus far by TTSA. Perhaps the government, out of desperation, did in fact tell him a number of highly sensitive things and assisted with TTSA in hopes of progress.
+
+(This is a work in progress with more changes to be made.)
+
+TODO: obtain crop circle interpretation book.
+TODO: check for any consistencies with crop circle message vs. government acting soon after.
 
 ---
 
