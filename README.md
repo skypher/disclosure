@@ -178,7 +178,7 @@ Though TTSA has led a questionable effort, the above is alarmingly consistent wi
 
 ---
 
-(This is a work in progress with more changes to be made.)
+*This is a work in progress with more changes to be made.*
 
 TODO: obtain crop circle interpretation book.
 
