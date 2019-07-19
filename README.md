@@ -189,7 +189,7 @@ Approximately 3.7 million Americans claim to have experienced alien abduction. S
 
 In any case, reliable information is imperative for individual survival. The public continues to be fed baloney. If you are going to drip information to prevent hysteria, each drip must be true. Everything needs to add up; past, present, and future. Otherwise, it all looks like one big psyop or suspiciously careless management of what portends to be the most significant event in human history. If you have been working with aliens but are being fucked with, come out and say so. The Earth is in bad shape. Our financial systems may well be on the brink of collapse. A "mass novelty event," sooner than later, based on the full truth, may be our best play.
 
-My fellow Americans, join me in ignorance: behold the heavens (or hells – to be determined) through our great nation's lens of plausible deniability, history of deception, and preservation of special interests. While the government appreciates your tax dollars, they also believe you are too stupid to see, or at least question, the bullshit narrative.
+My fellow Americans, join me in ignorance: behold the heavens (or hells – to be determined) through our great nation's lens of plausible deniability, history of deception, and preservation of special interests. While the government appreciates your tax dollars, they also believe you are too stupid to see, or at least question, the bullshit disclosure narrative.
 
 ---
 
