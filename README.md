@@ -177,7 +177,7 @@ Seemingly beyond human construction, yet such a vague warning for humanity. For 
 
 Again, the 500D chess scenario again prevails.
 
-Aliens: come out with it, or it looks like you are toying with the public even more than the government. 
+Aliens: come out with it, or it looks like you are toying with the public even more than the government. Or are you in cahoots?
 
 ## Conclusion
 
