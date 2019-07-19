@@ -182,7 +182,7 @@ My fellow Americans, join me in ignorance: behold the heavens (or hells – to b
 
 *This is a work in progress with more changes to be made.*
 
-TODO: obtain crop circle interpretation book.
+TODO: review reliable crop analysis further.
 
 TODO: check for any consistencies with crop circle message vs. government acting soon after.
 
