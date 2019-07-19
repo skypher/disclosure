@@ -132,7 +132,7 @@ And of course, we would likely want an explanation for our long history of suffe
 
 ------
 
-## We seem to have received communications already...
+## We seem to have received communications already.
 
 If alien communication is now a thing, we should also look for signs of past communication. Remember crop circles? They are largely dismissed and ridiculed. Perhaps they now deserve a closer look.
 
@@ -150,13 +150,13 @@ An authentic crop circle is one beyond reasonable human capability with due rese
 
 ### Why hasn't the government created "outgoing" crop circles with live streaming video for the world to watch?
 
-I can only think of two realistic options:
+I can think of only two realistic options:
 
-a. Inexplicably, no one in the DoD or among their contractors have considered it over the years.
+1. Inexplicably, no one in the DoD or among their contractors have considered it over the years.
 
-b. Because the government wants to remain in control of their (objectively flawed) narrative. Little effort would be required; even less than building a custom radio beacon, as is the current suspicious TTSA/DoD narrative/path.
+2. Because the government wants to remain in control of their (objectively flawed) narrative. Tending the fields would be less work than building a custom radio beacon, as is the current suspicious TTSA/DoD narrative/path.
 
-Seriously, if requested, I will cleverly design one encoded with, "Help! What should we do?" Another option: "Help! What is the best question to ask?" Print out some copies, pay a farmer for a portion of his fields or use government land, head out to the fields with ropes and boards, turn on the live-streaming cameras, and wait. Though I doubt any of that will happen due to (b).
+Seriously, upon request, I will gladly design a clever crop circle encoded with, "Help! What should we do?" Another option: "Help! What is the best question to ask?" All the government needs to do is print out a few copies, pay a farmer a few grand, head out to the fields with ropes and boards, stamp and sway, turn on the live-streaming cameras, and wait. Though I doubt any of that will happen due to (2).
 
 Next, to further complicate things, considering the many designs and interpretations, we should consider crop circles are the work of multiple alien types.
 
@@ -168,7 +168,9 @@ In this example, humans must infer if the aliens are talking about governments, 
 
 The trust paradox continues. For all we know, crop circles could be alien propaganda tools. We may never truly know if there are any "good guys." The Alien Intervention Table is mostly grim. Full disclosure is the best shot at discerning the good from the bad. As time goes on and disclosure probably continues, aliens and their technology will be ever more at the forefront of public awareness. The risk for hysteria increases, unless of course the government has reason not to care about panic: maybe we are all going to be dead soon, anyway. Maybe they have good news, but want to hold back on the good news because they want to run a psyop first. I do not like the prospects, considering the reported mutilations, etc. Hypothetically, even a malevolent alien race would protect us in some cases so it can keep doing evil deeds.
 
-In any case, reliable information is imperative for individual survival. The public continues to be fed baloney. If you are going to drip information to prevent hysteria, each drip must be true. Everything needs to add up; past, present, and future. Otherwise it all looks like a psyop or intentionally careless management of what portends to be the most significant event in human history.
+In any case, reliable information is imperative for individual survival. The public continues to be fed baloney. If you are going to drip information to prevent hysteria, each drip must be true. Everything needs to add up; past, present, and future. Otherwise it all looks like a psyop or intentionally careless management of what portends to be the most significant event in human history. 
+
+My fellow Americans, join me in ignorance: behold the heavens through our great nation's lens of plausible deniability.
 
 ------
 
