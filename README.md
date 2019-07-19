@@ -140,7 +140,7 @@ For a moment, consider that crop fields are actually a wise communication medium
 
 Crop circles:
 
-- Are a form of visual communication. Pictures are great for distribution and analysis. Communication through our other senses would be temporary, more subjective, startling, confusing, or hold little useful information. 
+- Are a form of testable visual communication. Pictures are great for distribution and analysis. Communication through our other senses would be temporary, more subjective, startling, confusing, or hold little useful information. 
 - Are accessible. In comparison, alien radio signals would be received by a select few and could be more readily suppressed or manipulated.
 - Appear most often in crop fields. Crop fields exist throughout the world. They maintain structure over time. We can look for hoaxes. Desert sand, clouds, etc. are more ephemeral. 
 - Provide significant logistical difficulty to suppress. Crop circles exist in wide open fields. Local reporters, farmers, bystanders, etc. can easily proliferate pictures.
@@ -164,13 +164,13 @@ Read the analysis of this intricate crop circle: http://www.cropcircleconnector.
 
 > "Beware the bearers of FALSE gifts & their BROKEN PROMISES. Much PAIN but still time. BELIEVE. There is GOOD out there. We OPpose DECEPTION. Conduit CLOSING."
 
-In this example, humans must infer if the aliens are talking about governments, other aliens, or both. The 500D chess scenario fits well into vague statements. Aliens: say what you mean, or it looks like you are toying with the public even more than the government. 
+In this example, humans must infer if the aliens are talking about governments, other aliens, or both. For all we know, crop circles could be alien propaganda tools. The 500D chess scenario is compatible with such vague statements. 
 
-
+Aliens: say what you mean, or it looks like you are toying with the public even more than the government. 
 
 ## Conclusion
 
-The trust paradox continues. For all we know, crop circles could be alien propaganda tools. We may never truly know if there are any "good guys." The Alien Intervention Table is mostly grim. Full disclosure is the best shot at discerning the good from the bad. As time goes on and disclosure probably continues, aliens and their technology will be ever more at the forefront of public awareness. The risk for hysteria increases, unless of course the government has reason not to care about panic: maybe we are all going to be dead soon, anyway. Maybe they have good news, but want to hold back on the good news because they want to run a psyop first. I do not like the prospects, considering the reported mutilations, etc. Hypothetically, even a malevolent alien race would protect us in some cases so it can keep doing evil deeds.
+The trust paradox continues. We may never truly know if there are any "good guys." The Alien Intervention Table is mostly grim. Full disclosure is the best shot at discerning the good from the bad. As time goes on and disclosure probably continues, aliens and their technology will be ever more at the forefront of public awareness. The risk for hysteria increases, unless of course the government has reason not to care about panic: maybe we are all going to be dead soon, anyway. Maybe they have good news, but want to hold back on the good news because they want to run a psyop first. I do not like the prospects, considering the reported mutilations, etc. Hypothetically, even a malevolent alien race would protect us in some cases so it can keep doing evil deeds.
 
 In any case, reliable information is imperative for individual survival. The public continues to be fed baloney. If you are going to drip information to prevent hysteria, each drip must be true. Everything needs to add up; past, present, and future. Otherwise, it all looks like one big psyop or suspiciously careless management of what portends to be the most significant event in human history. 
 
