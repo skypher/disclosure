@@ -200,7 +200,7 @@ What did Q post (#918) on March 10, 2018 at 2:05:58 PM EST?
 > Wait until you learn who has been talking to you here.
 > Q
 
-Where was Q before the NSA's mass surveillance program? Allowing kids to get raped before deciding to act? Surely, Q would nipped this pedogate thing in the bud or prevented him from getting away with it the first time. Maybe allowing countless instances of child rape (and who knows what else) for years was all part of Q's plan. If Q is a source for global good, why does Q not denounce American exceptionalism or associations with Trump, who has and will make mistakes?
+Where was Q before the NSA's mass surveillance program? Allowing kids to get raped before deciding to act? Surely, Q would nipped this pedogate thing in the bud or prevented Epstein from getting away with it the first time. Maybe allowing countless instances of child rape (and who knows what else) for years was all part of Q's plan. If Q is a source for global good, why does Q not denounce American exceptionalism or associations with Trump, who has and will make mistakes?
 
 Here is the tie-in. As crazy at it sounds, Q or an official government source could say, "Q = aliens." Q is already associated with alien intervention (check Twitter hashtags). The people will not know what to believe. How convenient for aliens and the corrupt! Then any time our rights are subverted, we have no recourse. This is perfectly consistent with the above hypothetical vulnerability examples. We will never know what to believe! 
 
