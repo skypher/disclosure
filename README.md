@@ -175,7 +175,7 @@ This crop circle, though materfully done, contains two glaring isues:
 
 Seemingly beyond human construction, yet such a vague warning for humanity. For all we know, crop circles could be alien propaganda or false historical trust building tools. 
 
-Again, the 500D chess scenario again prevails.
+Again, the 500D chess scenario prevails.
 
 Aliens: come out with it, or it looks like you are toying with the public even more than the government. Or are you in cahoots?
 
