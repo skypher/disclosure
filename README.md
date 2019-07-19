@@ -2,7 +2,7 @@
 
 This project's purpose is to assist disclosure and evolution.
 
-------
+---
 
 ## Notice
 
@@ -16,7 +16,7 @@ Attribution is kindly requested in order to promote contributor safety and proje
 
 For simplicity, I use the word "alien" or "ET" to describe the advanced intelligence responsible for UAP.
 
-------
+---
 
 ## On a non-fiction TV show, a former US counter-intelligence officer visited a foreign government, procured a method to communicate with aliens, and upon his return home, provided the alien communication secrets to active US military officers?
 
@@ -60,7 +60,7 @@ Lastly, an intelligence capable of constructing the inconceivably advanced "Tic 
 
 Do you see a huge problem? As described next, we become more vulnerable, we do not know what to believe, and trust erodes.
 
-------
+---
 
 ## The problem: alien communication, possible or not, opens Pandora's box and allows the government to say and do practically anything.
 
@@ -104,25 +104,25 @@ Hypothetical vulnerability examples:
 
 **Use your imagination. Real or otherwise, the US government will essentially be whispering to gods, or claim to be, which may be worse. The situation allows for perfect proxy warfare.** How do we know aliens will not show up and set the record straight via force? As it stands, UAP buzz naval fleets in an intimidating fashion and have interfered with missile systems. They are playing with fire.
 
-------
+---
 
 ## Food for thought
 
-- Disclosure does not appear to be an elaborate fiasco to drum up support for a space force. For example, Unidentified would have been a perfect opportunity to embolden such a plan. Also, TTSA and unaffiliated experts agree that we are too far behind to defeat them. And recently, when asked about aliens, Trump has ignored opportunities to promote a space force and defense spending.
-- For a false flag alien invasion, human-made advanced aircraft could be costumed with alien-looking lights and structural additions. This is a current threat and may have occurred already.
-- Why would the Italian government wait and share extremely valuable information only during a TV show? It would behoove mankind for the Italians to share this information long ago with the DoD if that was the actual intent. Is that not suspicious?
-- How did TTSA coordinate contact with active military for Unidentified interviews? Did the DoD help?
-- Considering the sensitive subject matter of Unidentified, did the DoD review each episode prior to air?
-- Investigators may seek DeLonge's security clearance via a FOIA request to the Office of Personnel Management (OPM). After all, he sat alongside three blurred military intelligence officials for a highly sensitive briefing regarding UAP and shared information received from a foreign government. I am not aware of any indication or disclaimer that Unidentified is a dramatization. If DeLonge has no clearance or the FOIA request is fruitless, is that not concerning?
-- Has DeLonge been afforded a security detail to prevent adversaries from learning alleged alien communication secrets?
-- Are the aliens bending or reflecting light? A straight beam shot from undersea should only hit coastal homes unless the homes are elevated progressively inland.
-- In other episodes of Unidentified, the TTSA offices in California are shown. Is it a convincingly decorated studio? If not, is there a SCIF (Sensitive Compartmented Information Facility) room on-site? I cannot imagine Elizondo and others would discuss classified UAP information from the offices, as pictured in the show. Someone may say something highly classified. There is even a public gift shop on-site, according to DeLonge at 19:30 in this video: https://youtu.be/5s0mnaz5uwI?t=1170. Perhaps TTSA would not mind producing documentation showing that a secure room exists on-site or local municipal building officials have such information? Why regularly depict a lack of OPSEC? Perhaps TTSA and Unidentified are DoD fronts for spreading distorted, self-serving disclosure? Are there no security concerns because the government has already established some form of an agreement with aliens?
-- Really, the Italians figured out how to communicate with ET before we did? The National Reconnaissance Office and NSA could not detect and recognize unusual patterns? Have some SAPs (Special Access Programs) gone rogue?
-- Elizondo's laptop could well contain classified information. Did Elizondo submit the thumb drive for security inspection prior to inserting it into his laptop? He appeared to still be in Italy when browsing the Italian UAP documents.
-- Considering the questionable disclosure choices made thus far (and this document is by no means a comprehensive list), how can you be assured everything will be handled optimally?
-- Things do not seem to add up. Considering the pace of disclosure-like over the last year or so (New York Times article, questionably released DoD UAP videos, revised US Navy UAP reporting guidelines, congressional UAP briefings, President Trump interview questions, etc.) something appears to be happening. Undeniably, Earth is in bad shape, so advanced intervention may be required. However, this is all such an odd way to go about disclosure.
+* Disclosure does not appear to be an elaborate fiasco to drum up support for a space force. For example, Unidentified would have been a perfect opportunity to embolden such a plan. Also, TTSA and unaffiliated experts agree that we are too far behind to defeat them. And recently, when asked about aliens, Trump has ignored opportunities to promote a space force and defense spending.
+* For a false flag alien invasion, human-made advanced aircraft could be costumed with alien-looking lights and structural additions. This is a current threat and may have occurred already.
+* Why would the Italian government wait and share extremely valuable information only during a TV show? It would behoove mankind for the Italians to share this information long ago with the DoD if that was the actual intent. Is that not suspicious?
+* How did TTSA coordinate contact with active military for Unidentified interviews? Did the DoD help?
+* Considering the sensitive subject matter of Unidentified, did the DoD review each episode prior to air?
+* Investigators may seek DeLonge's security clearance via a FOIA request to the Office of Personnel Management (OPM). After all, he sat alongside three blurred military intelligence officials for a highly sensitive briefing regarding UAP and shared information received from a foreign government. I am not aware of any indication or disclaimer that Unidentified is a dramatization. If DeLonge has no clearance or the FOIA request is fruitless, is that not concerning?
+* Has DeLonge been afforded a security detail to prevent adversaries from learning alleged alien communication secrets?
+* Are the aliens bending or reflecting light? A straight beam shot from undersea should only hit coastal homes unless the homes are elevated progressively inland.
+* In other episodes of Unidentified, the TTSA offices in California are shown. Is it a convincingly decorated studio? If not, is there a SCIF (Sensitive Compartmented Information Facility) room on-site? I cannot imagine Elizondo and others would discuss classified UAP information from the offices, as pictured in the show. Someone may say something highly classified. There is even a public gift shop on-site, according to DeLonge at 19:30 in this video: https://youtu.be/5s0mnaz5uwI?t=1170. Perhaps TTSA would not mind producing documentation showing that a secure room exists on-site or local municipal building officials have such information? Why regularly depict a lack of OPSEC? Perhaps TTSA and Unidentified are DoD fronts for spreading distorted, self-serving disclosure? Are there no security concerns because the government has already established some form of an agreement with aliens?
+* Really, the Italians figured out how to communicate with ET before we did? The National Reconnaissance Office and NSA could not detect and recognize unusual patterns? Have some SAPs (Special Access Programs) gone rogue?
+* Elizondo's laptop could well contain classified information. Did Elizondo submit the thumb drive for security inspection prior to inserting it into his laptop? He appeared to still be in Italy when browsing the Italian UAP documents.
+* Considering the questionable disclosure choices made thus far (and this document is by no means a comprehensive list), how can you be assured everything will be handled optimally?
+* Things do not seem to add up. Considering the pace of disclosure-like over the last year or so (New York Times article, questionably released DoD UAP videos, revised US Navy UAP reporting guidelines, congressional UAP briefings, President Trump interview questions, etc.) something appears to be happening. Undeniably, Earth is in bad shape, so advanced intervention may be required. However, this is all such an odd way to go about disclosure.
 
-------
+---
 
 ## Are we equipped to play 500D alien chess?
 
@@ -136,9 +136,9 @@ And of course, we would likely want an explanation for our long history of suffe
 
 *How many scenarios above are you comfortable with?*
 
-------
+---
 
-## We seem to have received communications already.
+## They have communicated already.
 
 If alien communication is now a thing, we should also look for signs of past communication. Remember crop circles? They are largely dismissed and ridiculed. Perhaps they now deserve a closer look.
 
@@ -146,11 +146,11 @@ For a moment, consider that crop fields are actually a wise communication medium
 
 Crop circles:
 
-- Are a form of testable visual communication. Pictures are great for distribution and analysis. Communication through our other senses would be temporary, more subjective, startling, confusing, or hold little useful information. 
-- Are accessible. In comparison, alien radio signals would be received by a select few and could be more readily suppressed or manipulated.
-- Appear most often in crop fields. Crop fields exist throughout the world. They maintain structure over time. We can look for hoaxes. Desert sand, clouds, etc. are more ephemeral. 
-- Provide significant logistical difficulty to suppress. Crop circles exist in wide open fields. Local reporters, farmers, bystanders, etc. can easily proliferate pictures.
-- Are a relatively recent occurrence as of ~1978: https://allthatsinteresting.com/crop-circles. 
+* Are a form of testable visual communication. Pictures are great for distribution and analysis. Communication through our other senses would be temporary, more subjective, startling, confusing, or hold little useful information. 
+* Are accessible. In comparison, alien radio signals would be received by a select few and could be more readily suppressed or manipulated.
+* Appear most often in crop fields. Crop fields exist throughout the world. They maintain structure over time. We can look for hoaxes. Desert sand, clouds, etc. are more ephemeral. 
+* Provide significant logistical difficulty to suppress. Crop circles exist in wide open fields. Local reporters, farmers, bystanders, etc. can easily proliferate pictures.
+* Are a relatively recent occurrence as of ~1978: https://allthatsinteresting.com/crop-circles. 
 
 An authentic crop circle is one beyond reasonable human capability with due research. Read this analysis: http://www.cropcircleconnector.com/2017/cherhill/comments.html. Into hard science/physics? Read further about Sw J1644+57 here: https://en.wikipedia.org/wiki/GRB_110328A. What are the odds? What about the timeframe? Next, watch this video: https://www.youtube.com/watch?v=CGO5aNx2hos. Is he deceiving you?
 
@@ -159,6 +159,7 @@ An authentic crop circle is one beyond reasonable human capability with due rese
 I can think of only two realistic options:
 
 1. Somehow, the DoD's best minds never thought of it over the years?
+
 2. Because the government wants to remain in control of their (objectively flawed) narrative. Tending the fields would be less work than building a custom radio beacon, as is the current suspicious TTSA/DoD narrative/path.
 
 Seriously, upon request, I will gladly design a clever crop circle encoded with, "Help! What should we do?" Another option: "Help! What is the best question to ask?" All the government needs to do is print out a few copies, pay a farmer a few grand, head out to the fields with ropes and boards, stamp and sway, roll the live-streaming cameras, and wait. Though, this will likely not occur due to (2).
@@ -190,7 +191,7 @@ In any case, reliable information is imperative for individual survival. The pub
 
 My fellow Americans, join me in ignorance: behold the heavens (or hells – to be determined) through our great nation's lens of plausible deniability, history of deception, and preservation of special interests.
 
-------
+---
 
 *This is a work in progress with more changes to be made.*
 
@@ -200,7 +201,7 @@ TODO: check for any consistencies with crop circle message vs. government acting
 
 TODO: look for further connections between Q and phenomena.
 
-------
+---
 
 Chad Gosselin
 
