@@ -179,9 +179,9 @@ This crop circle, though masterfully done, contains two glaring issues:
 
 Seemingly beyond human construction, yet such a vague warning for humanity. For all we know, crop circles could be alien propaganda or false historical trust building tools. Regarding the whole ancient alien thing: any alien that encourages worship is not an alien I would trust.
 
-Again, the 500D chess scenario prevails.
-
 Aliens: come out with it, or it looks like you are toying with the public even more than the government. Or are you in cahoots?
+
+Again, the 500D chess scenario prevails.
 
 ## Conclusion
 
