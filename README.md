@@ -22,7 +22,7 @@ For simplicity, I use the word "alien" or "ET" to describe the advanced intellig
 
 Unidentified, a History network television program, aired its final seasonal episode (S01E06) July 5, 2019. The show focused on UAP (Unidentified Aerial Phenomena aka UFOs) encountered by former and current military personnel. Episodes are available via history.com and amazon.com.
 
-A typical response to this is, "It's just a TV show!" On this point, please do your research and come back. Television and other forms of media have long been used to condition the public, and TTSA (To The Stars Academy of Arts & Science) has readily admitted this much. In further reading, you will see why the TTSA is a DoD (U.S. Department of Defense) program.
+A typical response to this is, "It's just a TV show!" On this point, please do your research and come back. Television and other forms of media have long been used to condition the public, and TTSA (To The Stars Academy of Arts & Science) has readily admitted this much. Below, you will see why the TTSA is a DoD (U.S. Department of Defense) program.
 
 The final episode shows Tom DeLonge and Luis Elizondo of TTSA meeting with Italian government officials who claim possession of over 13,000 UAP case reports from a 70-year period. Elizondo is said to maintain an active security clearance and claims to be the former head of AATIP, the US government's Advanced Aerospace Threat Identification Program that studied UAP.
 
