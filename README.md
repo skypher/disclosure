@@ -162,6 +162,8 @@ I can think of only two realistic options:
 
 2. Because the government wants to remain in control of their (objectively flawed) narrative. Tending the fields would be less work than building a custom radio beacon, as is the current suspicious TTSA/DoD narrative/path.
 
+3. Elon Musk has not suggested it.
+
 Seriously, upon request, I will gladly design a clever crop circle encoded with, "Help! What should we do?" Another option: "Help! What is the best question to ask?" All the government needs to do is print out a few copies, pay a farmer a few grand, head out to the fields with ropes and boards, stamp and sway, roll the live-streaming cameras, and wait. Though, this will likely not occur due to (2).
 
 Next, to further complicate things, because of the many designs and interpretations, we should consider whether crop circles are the work of multiple alien types.
@@ -175,7 +177,7 @@ This crop circle, though masterfully done, contains two glaring issues:
 1. Humans are left to infer if the aliens are talking about governments, other aliens, or both. 
 2. Some analysts believe this crop circle is a sort of alien wanted poster for evil Orion aliens, as per the three stars or UAP above the alien's shoulder. 
 
-Seemingly beyond human construction, yet such a vague warning for humanity. For all we know, crop circles could be alien propaganda or false historical trust building tools. 
+Seemingly beyond human construction, yet such a vague warning for humanity. For all we know, crop circles could be alien propaganda or false historical trust building tools. Regarding the whole ancient alien thing: any alien that encourages worship is not an alien I would trust.
 
 Again, the 500D chess scenario prevails.
 
