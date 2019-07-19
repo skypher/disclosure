@@ -170,7 +170,7 @@ The trust paradox continues. For all we know, crop circles could be alien propag
 
 In any case, reliable information is imperative for individual survival. The public continues to be fed baloney. If you are going to drip information to prevent hysteria, each drip must be true. Everything needs to add up; past, present, and future. Otherwise it all looks like a psyop or intentionally careless management of what portends to be the most significant event in human history. 
 
-My fellow Americans, join me in ignorance: behold the heavens through our great nation's lens of plausible deniability.
+My fellow Americans, join me in ignorance: behold the heavens (or hells) through our great nation's lens of plausible deniability.
 
 ------
 
