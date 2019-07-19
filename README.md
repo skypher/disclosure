@@ -162,15 +162,22 @@ I can think of only two realistic options:
 
 Seriously, upon request, I will gladly design a clever crop circle encoded with, "Help! What should we do?" Another option: "Help! What is the best question to ask?" All the government needs to do is print out a few copies, pay a farmer a few grand, head out to the fields with ropes and boards, stamp and sway, roll the live-streaming cameras, and wait. Though, this will likely not occur due to (2).
 
-Next, to further complicate things, considering the many designs and interpretations, we should consider crop circles are the work of multiple alien types.
+Next, to further complicate things, because of the many designs and interpretations, we should consider whether crop circles are the work of multiple alien types.
 
 Read the analysis of this intricate pattern: http://www.cropcircleconnector.com/anasazi/fringe2014m.html. The decoded message is:
 
 > "Beware the bearers of FALSE gifts & their BROKEN PROMISES. Much PAIN but still time. BELIEVE. There is GOOD out there. We OPpose DECEPTION. Conduit CLOSING."
 
-In this example, humans must infer if the aliens are talking about governments, other aliens, or both. For all we know, crop circles could be alien propaganda tools. The 500D chess scenario is compatible with such vague statements. 
+This crop circle, though materfully done, contains two glaring isues:
 
-Aliens: say what you mean, or it looks like you are toying with the public even more than the government. 
+1. Humans are left to infer if the aliens are talking about governments, other aliens, or both. 
+2. Some analysts believe this crop circle is a sort of alien wanted poster for evil Orion aliens, as per the three stars or UAP above the alien's shoulder. 
+
+Seemingly beyond human construction, yet such a vague warning for humanity. For all we know, crop circles could be alien propaganda or false historical trust building tools. 
+
+Again, the 500D chess scenario again prevails.
+
+Aliens: come out with it, or it looks like you are toying with the public even more than the government. 
 
 ## Conclusion
 
