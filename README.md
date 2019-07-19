@@ -138,7 +138,7 @@ And of course, we would likely want an explanation for our long history of suffe
 
 ---
 
-## Aliens have communicated already.
+## Aliens have communicated already
 
 If alien communication is now a thing, we should also look for signs of past communication. Remember crop circles? They are largely dismissed and ridiculed. Perhaps they now deserve a closer look.
 
