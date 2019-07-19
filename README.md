@@ -154,11 +154,11 @@ Crop circles:
 
 An authentic crop circle is one beyond reasonable human capability with due research. Read this analysis: http://www.cropcircleconnector.com/2017/cherhill/comments.html. Into hard science/physics? Read further about Sw J1644+57 here: https://en.wikipedia.org/wiki/GRB_110328A. What are the odds? What about the timeframe? Next, watch this video: https://www.youtube.com/watch?v=CGO5aNx2hos. Is he deceiving you?
 
-### Why hasn't the government created "outgoing" crop circles with live streaming video for the world to watch?
+### Why hasn't the government tried creating "outbound" crop circles with live streaming video for the world to watch?
 
 I can think of only two realistic options:
 
-1. Somehow, the DoD's best minds never thought of it over the years?
+1. Somehow, over the years, the DoD's best minds never thought of it?
 
 2. Because the government wants to remain in control of their (objectively flawed) narrative. Tending the fields would be less work than building a custom radio beacon, as is the current suspicious TTSA/DoD narrative/path.
 
@@ -189,7 +189,7 @@ Approximately 3.7 million Americans claim to have experienced alien abduction. S
 
 In any case, reliable information is imperative for individual survival. The public continues to be fed baloney. If you are going to drip information to prevent hysteria, each drip must be true. Everything needs to add up; past, present, and future. Otherwise, it all looks like one big psyop or suspiciously careless management of what portends to be the most significant event in human history. If you have been working with aliens but are being fucked with, come out and say so. The Earth is in bad shape. Our financial systems may well be on the brink of collapse. A "mass novelty event," sooner than later, based on the full truth, may be our best play.
 
-My fellow Americans, join me in ignorance: behold the heavens (or hells – to be determined) through our great nation's lens of plausible deniability, history of deception, and preservation of special interests.
+My fellow Americans, join me in ignorance: behold the heavens (or hells – to be determined) through our great nation's lens of plausible deniability, history of deception, and preservation of special interests. While the government appreciates your tax dollars, they also believe you are too stupid to see, or at least question, the big picture.
 
 ---
 
