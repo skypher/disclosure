@@ -160,7 +160,7 @@ I can think of only two realistic options:
 
 2. Because the government wants to remain in control of their (objectively flawed) narrative. Tending the fields would be less work than building a custom radio beacon, as is the current suspicious TTSA/DoD narrative/path.
 
-Seriously, upon request, I will gladly design a clever crop circle encoded with, "Help! What should we do?" Another option: "Help! What is the best question to ask?" All the government needs to do is print out a few copies, pay a farmer a few grand, head out to the fields with ropes and boards, stamp and sway, turn on the live-streaming cameras, and wait. Though I doubt any of that will happen due to (2).
+Seriously, upon request, I will gladly design a clever crop circle encoded with, "Help! What should we do?" Another option: "Help! What is the best question to ask?" All the government needs to do is print out a few copies, pay a farmer a few grand, head out to the fields with ropes and boards, stamp and sway, roll the live-streaming cameras, and wait. Though, this will likely not occur due to (2).
 
 Next, to further complicate things, considering the many designs and interpretations, we should consider crop circles are the work of multiple alien types.
 
