@@ -169,7 +169,7 @@ Read the analysis of this intricate pattern: http://www.cropcircleconnector.com/
 
 > "Beware the bearers of FALSE gifts & their BROKEN PROMISES. Much PAIN but still time. BELIEVE. There is GOOD out there. We OPpose DECEPTION. Conduit CLOSING."
 
-This crop circle, though materfully done, contains two glaring isues:
+This crop circle, though masterfully done, contains two glaring issues:
 
 1. Humans are left to infer if the aliens are talking about governments, other aliens, or both. 
 2. Some analysts believe this crop circle is a sort of alien wanted poster for evil Orion aliens, as per the three stars or UAP above the alien's shoulder. 
