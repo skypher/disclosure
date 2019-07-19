@@ -14,7 +14,7 @@ Do not share classified information. All information is to be considered specula
 
 Attribution is kindly requested in order to promote contributor safety and project growth.
 
-For simplicity, I use the word "alien" or "ET" to describe the advanced intelligence responsible for UAP.
+For simplicity, I use the terms "alien" or "ET" to describe non-human advanced intelligence.
 
 ---
 
