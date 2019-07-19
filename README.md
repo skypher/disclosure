@@ -158,7 +158,7 @@ An authentic crop circle is one beyond reasonable human capability with due rese
 
 I can think of only two realistic options:
 
-1. Somehow, no one in the DoD thought of it over the years?
+1. Somehow, the DoD's best minds never thought of it over the years?
 
 2. Because the government wants to remain in control of their (objectively flawed) narrative. Tending the fields would be less work than building a custom radio beacon, as is the current suspicious TTSA/DoD narrative/path.
 
