@@ -162,7 +162,7 @@ Seriously, upon request, I will gladly design a clever crop circle encoded with,
 
 Next, to further complicate things, considering the many designs and interpretations, we should consider crop circles are the work of multiple alien types.
 
-Read the analysis of this intricate crop circle: http://www.cropcircleconnector.com/anasazi/fringe2014m.html. The decoded alien message is:
+Read the analysis of this intricate pattern: http://www.cropcircleconnector.com/anasazi/fringe2014m.html. The decoded message is:
 
 > "Beware the bearers of FALSE gifts & their BROKEN PROMISES. Much PAIN but still time. BELIEVE. There is GOOD out there. We OPpose DECEPTION. Conduit CLOSING."
 
