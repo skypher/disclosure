@@ -189,11 +189,13 @@ The trust paradox continues. We may never truly know if there are any "good guys
 
 Approximately 3.7 million Americans claim to have experienced alien abduction. See https://www.psychologytoday.com/us/blog/sleepless-in-america/201709/alien-abduction-part-ii. Many people have little or no interest in science fiction or do not see "grey alien" imagery on a regular basis. Why are so many reporting the archetypal grey alien frequently? Are alien dreams or alien visions during sleep paralysis really that common? Are hundreds of thousands of people getting rich from abduction stories? Is there a reason why the government has not looked into this phenomena? One would think that such mass hallucinations, or at least the suggestion of millions taken against their will by an unknown force, would warrant a government investigation. Can any person be abducted because of insufficient defenses? Are space thugs allowed to operate here? Is there any truth to some of the Majestic 12 documents? See http://majesticdocuments.com/documents/pre1948.php. Are the conspiracists are correct in that we cannot do anything about the space thugs due to an "unholy alliance?" Maybe the disclosure narrative prefers to skip over not just skeletons in the closet, but mass graves, as these unfilled, white rabbit holes may well descend into places darker than most can handle. Hypothetically, malevolent aliens would occasionally play nice to continue evil deeds. Abusive relationships tend to work out that way.
 
-Because disclosure is a very important current event with psyop qualities, and the government knows more than they tell, we should be on the lookout for parallels with other current events with psyop qualities.
+### Parallels in current events
 
-The Epstein/pedogate thing is big news. If the public begins to believe the world elite are/were engaged in evil rituals, considering these people were very important decision makers, maybe they had reasons to take calculated risks in the depths of a known pedophile's tropical island? If I was an evil alien interested in subverting populations, I may be inclined to add my own "special effects" beyond a billionaire's cavernous special effects budget. I could convince the world's elite of just about anything! Even if there is no alien involvement, Epstein and co. could have had quite the elaborate setup down there, as Ghislaine Maxwell was quite fond of masks: https://twitter.com/Lori_B_777/status/1148769811742318593.
+Because disclosure is a very important current event with psyop qualities, and the government knows more than they tell, we should be on the lookout for parallels in other current events that have psyop characteristics.
 
-Hell, an even better strategy would be to play both sides. Indeed, the Q movement is a mysterious and powerful influence. 
+The Epstein/pedogate thing is big news. If the public begins to believe the world elite are/were engaged in evil rituals, considering these people were very important decision makers, maybe they had reasons to take calculated risks in the depths of a known pedophile's tropical island? If I was an evil alien interested in subverting populations, I may be inclined to add my own "special effects" beyond a billionaire's cavernous special effects budget. I could convince the world's elite of just about anything! Even if there is no alien involvement, Epstein and co. could have had quite the elaborate setup down there. Ghislaine Maxwell, an alleged child wrangler, was quite fond of masks: https://twitter.com/Lori_B_777/status/1148769811742318593.
+
+A great strategy for intelligence agencies is to play both sides. Indeed, the Q movement is a mysterious and powerful influence. 
 
 What did Q post (#918) on March 10, 2018 at 2:05:58 PM EST?
 
@@ -204,13 +206,46 @@ What did Q post (#918) on March 10, 2018 at 2:05:58 PM EST?
 
 By the way, where was Q before the NSA's mass surveillance program? Allowing kids to get raped before deciding to act? Surely, Q would nipped this pedogate thing in the bud or prevented Epstein from getting away with it the first time. Maybe allowing countless instances of child rape (and who knows what else) for years was all part of Q's plan. If Q is a source for global good, why does Q not denounce American exceptionalism or associations with Trump, who has and will make mistakes?
 
-Here is the tie-in. As crazy at it sounds, Q or an official government source could say, "Q = aliens." Q is already associated with alien intervention (check Twitter hashtags). The people will not know what to believe. How convenient for aliens and the corrupt! Then any time our rights are subverted, we have no recourse. This is perfectly consistent with the above hypothetical vulnerability examples. We will never know what to believe! 
+Stay with me here. I know conspiracy talk often goes off the rails, but we must look at potentials. **Any forward-looking thought can be called a dirty conspiracy until it happens, then it is a fact.**
 
-In any case, reliable information is imperative for individual survival. The public continues to be fed baloney. We are accustomed to binary, good-cop, bad-cop thinking, when life often has many layers. If you are going to drip information to prevent hysteria, each drip must be true. Everything needs to add up; past, present, and future. Otherwise, it all looks like one big psyop or suspiciously careless management of what portends to be the most significant event in human history. If you have been working with aliens but are being fucked with, come out and say so. The Earth is in bad shape. Our financial systems may well be on the brink of collapse. A "mass novelty event," sooner than later, based on the full truth, may be our best play.
+The alien chess piece is very valuable. It represents chaos, technology, government distrust, and the survival of the human race. If pedogate causes the global elite to suffer, perhaps the main distraction card will then be alien-related leaks: a form of disclosure, but with a twist. Hypothetically, if the Clintons are implicated, the alien card is a great distraction. 
 
-As of yet, I see no evidence for a benign alien intervention, which may very be impossible. Thus far, any suggestions of the sort that I have come across look suspect.
+On the other side of the coin, the Q movement/community flirts with alien intervention. The Q movement is associated with the Galactic Federation of Light (GFL) and claims pedogate is part of the "plan." Research Twitter hashtags used by many Q followers. 
 
-My fellow Americans, join me in ignorance: behold the heavens (or hells – to be determined) through our great nation's lens of plausible deniability, history of deception, and preservation of special interests. While the government appreciates your tax dollars, they also believe you are too stupid to see, or at least question, the bullshit disclosure narrative.
+Humans often seek (and therefore can be exploited by):
+* Groups to belong to 
+* The pursuit of purpose
+* Feeling special, including having special powers or being chosen
+
+The Q movement incorporates the three above elements: undeniably, Q is a purposeful movement associated with a narrative of belonging to a galactic chosen. The alien chess piece will play perfectly.
+
+Moreover, GFL membership occurs via self-diagnosis. How convenient. Ego loves encouragement. Ready to join a space force sent to Earth to usher in an age of enlightenment? Borrows a bit from Scientology, right? The mysterious Q will be in the perfect position to roll out the alien red carpet to a false galactic future. Indeed, we will see if Q refrains from the power of suggestion when the alien card is played. I doubt it. 
+
+Another powerful psychological exploit is to give people clues and have them fill in the blanks. This form of suggestion can be brilliantly seductive: people will convince themselves of synchronicities in their environments, such a numerical patterns that tie into biblical verses, the Sumerian language, etc. Oh yes, this is an ongoing theme in the Q movement.
+
+At some point, Q or an official government source could say, "Q = aliens." Imagine what would happen then!
+
+### You want the truth?
+
+Though religious words are divisive, here are "three prophecies" for our time that I came up with:
+
+1. Barring the unforeseen, maximum intelligence applied maximally wins maximally.
+2. The average person cannot make informed decisions due to limited information, time, or ability.
+3. The first person or group to scale AI exponentially owns the world.
+
+*Has the average person come across an alien message with the above sentiments? No.*
+
+You can bet intelligence agiences and intelligent people know the above. Hence the complex network of global blackmail, surveillance, etc. It is a tug of war for power and control. The founding fathers and religions may have had an understanding of human nature. However, they could not foresee had no concept of today's technology. There are no recent prophets. Hypothetically, a prophet could not exist today, as this person would be an enemy of the powerful, and would soon be dead, barring true miracles such as truly benign alien intervention.
+
+AIs and surveillance systems continue to advance. Human identify spoofing spoofing technology is improving via deepfakes and speech replication. Elon Musk and co. are improving Neurolink while he develops spacefaring tech. Despite (3) above (aka the potential development of the most powerful weapon, ever), the U.S. government currently does not regulate AI development. Isn't that a bit suspicious?
+
+Assuming those with the most intelligence are in a position to control the world the best, the masses will not know what to believe. How convenient for the corrupt! We seem to have little, if any recourse. This is perfectly consistent with the earlier aforementioned vulnerability examples. We will never know what to believe! 
+
+In any case, reliable information is imperative for individual survival. The public continues to be fed baloney. We are accustomed to binary, good-cop, bad-cop thinking, when life often has many layers; many out of the grasp of most. 
+
+Regarding any real disclosure, if you are going to drip information to prevent hysteria, each drip must be true. Everything needs to add up: past, present, and future. Otherwise, it all looks like one big psyop or suspiciously careless management of what portends to be the most significant event in human history. A "mass novelty event," sooner than later, based on the full truth, may be our best play. As of yet, I see no solid evidence for a benign alien intervention. Thus far, any suggestions of the sort that I have come across look suspect.
+
+My fellow Americans, join me in ignorance: behold the heavens (or hells – to be determined) through our great nation's lens of plausible deniability, history of deception, and preservation of special interests.
 
 ---
 
