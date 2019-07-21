@@ -235,11 +235,12 @@ At some point, Q or an official government source could say, "Q = aliens." Anoth
 
 ### You want the truth?
 
-Though religious words are divisive, here are "three prophecies" for our time that I came up with:
+Though religious words are divisive, here are "four prophecies" for our time that I came up with:
 
 1. Barring the unforeseen, maximum intelligence applied maximally wins maximally.
 2. The average person cannot make informed decisions due to limited information, time, or ability.
 3. The first person or group to scale AI exponentially owns the world.
+4. Effective mind control or influence is undetectable to lesser intelligence (humans) .
 
 *Has the average person come across an alien message with the above sentiments? No.*
 
@@ -254,6 +255,8 @@ In any case, reliable information is imperative for individual survival. The pub
 Regarding any real disclosure, if you are going to drip the information to prevent hysteria, each drip must be true. Everything needs to add up: past, present, and future. Otherwise, it all looks like one big psyop or suspiciously careless management of what portends to be the most significant event in human history. A "mass novelty event," sooner than later, based on the full truth, may be our best play. As of yet, I see no solid evidence for a benign alien intervention. Thus far, any suggestions of the sort that I have come across look suspect.
 
 My fellow Americans, join me in ignorance: behold the heavens (or hells – to be determined) through our great nation's lens of plausible deniability, history of deception, and preservation of special interests. We should consider the 7.53+ billion of us are cosmically regarded as debilitated monkey people, unable to overcome our inherently flawed nature, regularly at conflict, whose affairs are observed and manipulated by an incomprehensibly acute alien intelligence.
+
+Human history is fraught with failures and successes. Alien observers may have been here for a long time, if not from the start. Engineering an imperfect human species, giving rise to conflict, and noting various outcomes may be a worthwhile alien endeavor. Perhaps the climax of our human narrative is how we handle them and/or AI singularity. If we choose a path of singularity, we may well become them: a collective consciousness that quickly advances, becomes god-like, and eventually partakes in building civilizations for study and god knows what else. Perhaps our only shot at freedom/survival is to adorn the best of us with an intelligence exponentiating "god helmet" and hope for the best. Unfortunately, I do not see human nature or traditional technological advancement fixing the planet in time.
 
 ---
 
