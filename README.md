@@ -6,13 +6,13 @@ This project's purpose is to assist disclosure and evolution.
 
 ## Notice
 
-Before considering negative action, consider if such action is consistent with your better nature. I have never worked for the United States government as a contractor or otherwise. As a dual American-Canadian citizen, I would likely not be privy to classified information. All information herein was derived from public sources. Speculation is lawful. It is possible the TTSA and DoD actually encourages public speculation as related to this project. GitHub is a logical choice to have such an important conversation, as the platform promotes transparency and critical input. Also, opposition should not seek to subvert a technological cornerstone. Therefore, this may be an evolving project as disclosure unfolds.
+Before considering negative action, consider if such action is consistent with your better nature. I have never worked for the United States government as a contractor or otherwise. As a dual American-Canadian citizen, I would likely not be privy to classified information. All information herein was derived from public sources. Speculation is lawful. It is possible the TTSA and DoD actually encourage public speculation as related to this project. GitHub is a logical choice to have such an important conversation, as the platform promotes transparency and critical input. Also, opposition should not seek to subvert a technological cornerstone. Therefore, this may be an evolving project as disclosure unfolds.
 
 ![Warrant canary](warrant-canary.png)
 
 Do not share classified information. All information is to be considered speculation unless evidenced from unclassified, public sources.
 
-Attribution is kindly requested in order to promote contributor safety and project growth.
+To promote contributor safety and project growth, attribution is kindly requested.
 
 For simplicity, I use the terms "alien" or "ET" to describe non-human advanced intelligence.
 
@@ -54,7 +54,7 @@ For background, in multiple instances in Unidentified and national news, Elizond
 
 The TTSA/DoD endeavors conflict; perhaps by design. Such conflict creates suspicion and is ultimately dangerous. If the TTSA and/or DoD are trying to "come clean" regarding UAP as suggested by TTSA, conflicting messages should be avoided. Otherwise, it all looks like a psyop that fuels conspiracy, which directly contradicts TTSA's mission and credibility, thus fueling the conspiracy fire further. If the intentions of the TTSA/DoD are truly earnest, the message to the public must be unified, clear, and eventually provide supportive reasonable explanations as to why UAP has been such a gnarled issue all these years; unless of course TTSA/DoD know something very grave and they find no reason to behave responsibly because "the end is near," which, had disclosure been handled responsibly thus far, should not even be a plausible thought.
 
-Based on Unidentified S01E06, no exaggeration is required to state the US government is now in possession of, or posturing, a theoretical method to communicate with an advanced alien intelligence that is described as threatening. Since the technology involves a "radio beacon," and the US government has developed radio beacons, perhaps the government will soon succeed with alien communication.
+Based on Unidentified S01E06, no exaggeration is required to state the US government is now in possession of, or posturing, a theoretical method to communicate with advanced alien intelligence that is described as threatening. Since the technology involves a "radio beacon," and the US government has developed radio beacons, perhaps the government will soon succeed with alien communication.
 
 Lastly, an intelligence capable of constructing the inconceivably advanced "Tic Tac" craft observed in the 2004 USS Nimitz encounter could probably figure out how to communicate with us by imparting recognizable pictures in clouds or crop fields. If they wanted to communicate with everyone, reason suggests they could have done so. More on that later.
 
@@ -113,7 +113,7 @@ Hypothetical vulnerability examples:
 * Why would the Italian government wait and share extremely valuable information only during a TV show? It would behoove mankind for the Italians to share this information long ago with the DoD if that was the actual intent. Is that not suspicious?
 * How did TTSA coordinate contact with active military for Unidentified interviews? Did the DoD help?
 * Considering the sensitive subject matter of Unidentified, did the DoD review each episode prior to air?
-* Investigators may seek DeLonge's security clearance via a FOIA request to the Office of Personnel Management (OPM). After all, he sat alongside three blurred military intelligence officials for a highly sensitive briefing regarding UAP and shared information received from a foreign government. I am not aware of any indication or disclaimer that Unidentified is a dramatization. If DeLonge has no clearance or the FOIA request is fruitless, is that not concerning?
+* Investigators may seek DeLonge's security clearance via a FOIA request to the Office of Personnel Management (OPM). After all, he sat alongside three blurred military intelligence officials for a highly sensitive briefing regarding UAP and shared the information received from a foreign government. I am not aware of any indication or disclaimer that Unidentified is a dramatization. If DeLonge has no clearance or the FOIA request is fruitless, is that not concerning?
 * Has DeLonge been afforded a security detail to prevent adversaries from learning alleged alien communication secrets?
 * Are the aliens bending or reflecting light? A straight beam shot from undersea should only hit coastal homes unless the homes are elevated progressively inland.
 * In other episodes of Unidentified, the TTSA offices in California are shown. Is it a convincingly decorated studio? If not, is there a SCIF (Sensitive Compartmented Information Facility) room on-site? I cannot imagine Elizondo and others would discuss classified UAP information from the offices, as pictured in the show. Someone may say something highly classified. There is even a public gift shop on-site, according to DeLonge at 19:30 in this video: https://youtu.be/5s0mnaz5uwI?t=1170. Perhaps TTSA would not mind producing documentation showing that a secure room exists on-site or local municipal building officials have such information? Why regularly depict a lack of OPSEC? Perhaps TTSA and Unidentified are DoD fronts for spreading distorted, self-serving disclosure? Are there no security concerns because the government has already established some form of an agreement with aliens?
@@ -149,7 +149,7 @@ Crop circles:
 * Are a form of testable visual communication. Pictures are great for distribution and analysis. Communication through our other senses would be temporary, more subjective, startling, confusing, or hold little useful information. 
 * Are accessible. In comparison, alien radio signals would be received by a select few and could be more readily suppressed or manipulated.
 * Appear most often in crop fields. Crop fields exist throughout the world. They maintain structure over time. We can look for hoaxes. Desert sand, clouds, etc. are more ephemeral. 
-* Provide significant logistical difficulty to suppress. Crop circles exist in wide open fields. Local reporters, farmers, bystanders, etc. can easily proliferate pictures.
+* Provide significant logistical difficulty to suppress. Crop circles occur in open fields. Local reporters, farmers, bystanders, etc. can easily proliferate pictures.
 * Are a relatively recent occurrence as of ~1978: https://allthatsinteresting.com/crop-circles. 
 
 An authentic crop circle is one beyond reasonable human capability with due research. Read this analysis: http://www.cropcircleconnector.com/2017/cherhill/comments.html. Into hard science/physics? Read further about Sw J1644+57 here: https://en.wikipedia.org/wiki/GRB_110328A. What are the odds? What about the timeframe? Next, watch this video: https://www.youtube.com/watch?v=CGO5aNx2hos. Is he deceiving you?
@@ -177,53 +177,61 @@ This crop circle, though masterfully done, contains two glaring issues:
 1. Humans are left to infer if the aliens are talking about governments, other aliens, or both. 
 2. Some analysts believe this crop circle is a sort of alien wanted poster for evil Orion aliens, as per the three stars or UAP above the alien's shoulder. 
 
-Seemingly beyond human construction, yet such a vague warning for humanity. For all we know, crop circles could be alien propaganda or false historical trust building tools. Regarding the whole ancient alien thing: any alien that encourages worship is not an alien I would trust.
+Seemingly beyond human construction, yet such a vague warning for humanity. For all we know, crop circles could be alien propaganda or false historical trust-building tools. Regarding the whole ancient aliens idea: any alien that encourages worship is not an alien I would trust.
 
-Aliens: come out with it, or it looks like you are toying with the public even more than the government. Or are you in cahoots?
+Regarding the idea that "good" and "bad" alien factions exist: why is there no "bad alien crop circle defacement campaign" for helpful crop circles?
+
+Aliens: come out with it, or it looks like you are propagandizing the public, possibly even more than the government. Or are you in cahoots?
 
 Again, the 500D chess scenario prevails.
 
 ## Conspiracies and conclusions
 
-The trust paradox continues. We may never truly know if there are any "good guys." The Alien Intervention Table is mostly grim. Full disclosure is our best shot at discerning the good from the bad. As time goes on and disclosure probably continues, aliens and their technology will be ever more at the forefront of public awareness. The risk for hysteria increases, unless of course the government has reason not to care about panic: maybe we are all going to be dead soon, anyway. Maybe they have good news, but want to hold back on the good news because they want to run a psyop first. I do not like the prospects considering the frequency of alien abductions and mutilation reports.
+The trust paradox continues. We may never truly know if there are any "good guys." The Alien Intervention Table is mostly grim. Full disclosure is our best shot at discerning the good from the bad. As time goes on and disclosure probably continues, aliens and their technology will be even more at the forefront of public awareness. The risk for hysteria increases, unless of course, the government has reasons not to care about panic: maybe we are all going to be dead soon, anyway. Maybe they have good news but want to hold back on the good news because they want to run a psyop first. I do not like the prospects considering the frequency of alien abductions and mutilation reports.
 
-Approximately 3.7 million Americans claim to have experienced alien abduction. See https://www.psychologytoday.com/us/blog/sleepless-in-america/201709/alien-abduction-part-ii. Many people have little or no interest in science fiction or do not see "grey alien" imagery on a regular basis. Why are so many reporting the archetypal grey alien frequently? Are alien dreams or alien visions during sleep paralysis really that common? Are hundreds of thousands of people getting rich from abduction stories? Is there a reason why the government has not looked into this phenomena? One would think that such mass hallucinations, or at least the suggestion of millions taken against their will by an unknown force, would warrant a government investigation. Can any person be abducted because of insufficient defenses? Are space thugs allowed to operate here? Is there any truth to some of the Majestic 12 documents? See http://majesticdocuments.com/documents/pre1948.php. Are the conspiracists are correct in that we cannot do anything about the space thugs due to an "unholy alliance?" Maybe the disclosure narrative prefers to skip over not just skeletons in the closet, but mass graves, as these unfilled, white rabbit holes may well descend into places darker than most can handle. Hypothetically, malevolent aliens would occasionally play nice to continue evil deeds. Abusive relationships tend to work out that way.
+Approximately 3.7 million Americans claim to have experienced alien abduction. See https://www.psychologytoday.com/us/blog/sleepless-in-america/201709/alien-abduction-part-ii. Many people have little or no interest in science fiction or do not see "grey alien" imagery regularly. Why are so many reporting the archetypal grey alien frequently? Are alien dreams or alien visions during sleep paralysis really that common? Are hundreds of thousands of people getting rich from abduction stories? Is there a reason why the government has not looked into this phenomena? One would think that such mass hallucinations, or at least the suggestion of millions taken against their will by an unknown force, would warrant a government investigation. Can any person be abducted because of insufficient defenses? Are space thugs allowed to operate here? Is there any truth to some of the Majestic 12 documents? See http://majesticdocuments.com/documents/pre1948.php. Are the conspiracists are correct in that we cannot do anything about the space thugs due to an "unholy alliance?" Maybe the disclosure narrative prefers to skip over not just skeletons in the closet, but mass graves, as these unfilled, white rabbit holes may well descend into places darker than most can handle. Hypothetically, malevolent aliens would occasionally play nice to continue evil deeds. Abusive relationships tend to work out that way.
 
 ### Parallels in current events
 
 Because disclosure is a very important current event with psyop qualities, and the government knows more than they tell, we should be on the lookout for parallels in other current events that have psyop characteristics.
 
-The Epstein/pedogate thing is big news. If the public begins to believe the world elite are/were engaged in evil rituals, considering these people were very important decision makers, maybe they had reasons to take calculated risks in the depths of a known pedophile's tropical island? If I was an evil alien interested in subverting populations, I may be inclined to add my own "special effects" beyond a billionaire's cavernous special effects budget. I could convince the world's elite of just about anything! Even if there is no alien involvement, Epstein and co. could have had quite the elaborate setup down there. Ghislaine Maxwell, an alleged child wrangler, was quite fond of masks: https://twitter.com/Lori_B_777/status/1148769811742318593.
+The Epstein/pedogate thing is big news. If the public begins to believe the world elite are/were engaged in evil rituals, considering these people were very important decision-makers, maybe they had reasons to take such calculated risks in the depths of a known pedophile's tropical island? If I was an evil alien interested in subverting populations, I may be inclined to add my own "special effects" beyond a billionaire's cavernous special effects budget. I could convince the world's elite of just about anything! Even if there is no alien involvement, Epstein and co. could have had quite the elaborate setup down there. Ghislaine Maxwell, an alleged child wrangler, was quite fond of masks: https://twitter.com/Lori_B_777/status/1148769811742318593. Further, if DeLonge's "good" and "evil" alien story from the U.S. government is correct (whereby they play tug of war with mankind akin to Greek gods), manipulation of the world's elite via the "vice of kings" fits quite well.
 
-A great strategy for intelligence agencies is to play both sides. Indeed, the Q movement is a mysterious and powerful influence. 
+A great strategy for intelligence agencies, or aliens, to play both sides. Indeed, the Q movement is a mysterious and powerful influence on current events. Q could be another piece on the same chessboard. 
 
-What did Q post (#918) on March 10, 2018 at 2:05:58 PM EST?
+In case you are unfamiliar with Q:
+
+> Q Clearance Patriot, QAnon, or simply Q is a group of patriots in Military Intelligence / NSA with access to all the information including Top Secret and Secret Restricted Data. Q serves at the pleasure of President Trump and is leading The Storm and Great Awakening worldwide. Q leverages anonymous internet boards (the chans) to divulge the biggest insider approved intel drop in the history of the world.
+
+See https://qmap.pub/themes/read/66 for further Q details. The website qmap.pub is regarded as one of the best resources for all things Q.
+
+What did Q post (#918) on March 10, 2018, at 2:05:58 PM EST?
 
 > You are learning.
 > How many coincidences before it becomes mathematically impossible?
 > Wait until you learn who has been talking to you here.
 > Q
 
-By the way, where was Q before the NSA's mass surveillance program? Allowing kids to get raped before deciding to act? Surely, Q would nipped this pedogate thing in the bud or prevented Epstein from getting away with it the first time. Maybe allowing countless instances of child rape (and who knows what else) for years was all part of Q's plan. If Q is a source for global good, why does Q not denounce American exceptionalism or associations with Trump, who has and will make mistakes?
+Surely, Q would have wanted to nip this whole pedogate thing in the bud. I hope that Q explains the reasoning behind waiting while countless children were harmed and how this is part of the "plan." If Q is a source for global good, should he not eventually denounce American exceptionalism, associations with a polarizing figure like President Trump, and incorporate more universal themes? Clearly, Q (the NSA) is using patriotism, religion, and alien mysticism to manipulate the masses for mostly unknown purposes and outright asking for "trust" along the way. In case Q followers are offended by this assertion, please consider that pursuit of truth that reasonably conflicts with Q does not make me, or anyone else, a "shill." Q, if truly for the people, should promote truth-seeking across the board, even if truth upends Q's own mission.
 
 Stay with me here. I know conspiracy talk often goes off the rails, but we must look at potentials. **Any forward-looking thought can be called a dirty conspiracy until it happens, then it is a fact.**
 
 The alien chess piece is very valuable. It represents chaos, technology, government distrust, and the survival of the human race. If pedogate causes the global elite to suffer, perhaps the main distraction card will then be alien-related leaks: a form of disclosure, but with a twist. Hypothetically, if the Clintons are implicated, the alien card is a great distraction. 
 
-On the other side of the coin, the Q movement/community flirts with alien intervention. The Q movement is associated with the Galactic Federation of Light (GFL) and claims pedogate is part of the "plan." Research Twitter hashtags used by many Q followers. 
+The Q movement/community flirt with alien intervention. The Q movement is associated with the Galactic Federation of Light (GFL) and claims pedogate is part of the "plan." Research Twitter hashtags used by many Q followers. 
 
 Humans often seek (and therefore can be exploited by):
 * Groups to belong to 
 * The pursuit of purpose
 * Feeling special, including having special powers or being chosen
 
-The Q movement incorporates the three above elements: undeniably, Q is a purposeful movement associated with a narrative of belonging to a galactic chosen. The alien chess piece will play perfectly.
+The Q movement incorporates the three above elements while virally delegating the work to the hive-mind. Undeniably, Q is a purposeful movement associated with a narrative of belonging to a galactic chosen. The alien chess piece will play perfectly, as followers can be further worked into a quasi-religious-alien-"truth" fervor.
 
 Moreover, GFL membership occurs via self-diagnosis. How convenient. Ego loves encouragement. Ready to join a space force sent to Earth to usher in an age of enlightenment? Borrows a bit from Scientology, right? The mysterious Q will be in the perfect position to roll out the alien red carpet to a false galactic future. Indeed, we will see if Q refrains from the power of suggestion when the alien card is played. I doubt it. 
 
-Another powerful psychological exploit is to give people clues and have them fill in the blanks. This form of suggestion can be brilliantly seductive: people will convince themselves of synchronicities in their environments, such a numerical patterns that tie into biblical verses, the Sumerian language, etc. Oh yes, this is an ongoing theme in the Q movement.
+Another powerful psychological exploit is to give people clues and have them fill in the blanks. This form of suggestion can be brilliantly seductive: people will convince themselves of synchronicities in their environments, such numerical patterns that tie into biblical verses, the Sumerian language, etc. Oh yes, this is an ongoing theme in the Q movement.
 
-At some point, Q or an official government source could say, "Q = aliens." Imagine what would happen then!
+At some point, Q or an official government source could say, "Q = aliens." Another idea is "Q = The Lost Gospel Q: The Original Sayings of Jesus." See https://www.pbs.org/wgbh/pages/frontline/shows/religion/story/qthomas.html. Imagine what would happen then! As described, the groundwork exists for both alien and religious options. 
 
 ### You want the truth?
 
@@ -235,17 +243,17 @@ Though religious words are divisive, here are "three prophecies" for our time th
 
 *Has the average person come across an alien message with the above sentiments? No.*
 
-You can bet intelligence agiences and intelligent people know the above. Hence the complex network of global blackmail, surveillance, etc. It is a tug of war for power and control. The founding fathers and religions may have had an understanding of human nature. However, they could not foresee had no concept of today's technology. There are no recent prophets. Hypothetically, a prophet could not exist today, as this person would be an enemy of the powerful, and would soon be dead, barring true miracles such as truly benign alien intervention.
+You can bet intelligence agencies and intelligent people know the above. Hence the complex network of global blackmail, surveillance, etc. It is a tug of war for power and control. The founding fathers and religions may have had an understanding of human nature. However, they could not foresee had no concept of today's technology. There are no recent prophets. Hypothetically, a prophet could not exist today, as this person would be an enemy of the powerful, and would soon be dead, barring true miracles such as truly benign alien intervention.
 
-AIs and surveillance systems continue to advance. Human identify spoofing spoofing technology is improving via deepfakes and speech replication. Elon Musk and co. are improving Neurolink while he develops spacefaring tech. Despite (3) above (aka the potential development of the most powerful weapon, ever), the U.S. government currently does not regulate AI development. Isn't that a bit suspicious?
+AIs and surveillance systems continue to advance. Human identify spoofing technology is improving via deepfakes and speech replication. Elon Musk and co. are improving Neurolink while he develops spacefaring tech. Despite (3) above (aka the potential development of the most powerful weapon, ever), the U.S. government currently does not regulate AI development. Isn't that a bit suspicious?
 
-Assuming those with the most intelligence are in a position to control the world the best, the masses will not know what to believe. How convenient for the corrupt! We seem to have little, if any recourse. This is perfectly consistent with the earlier aforementioned vulnerability examples. We will never know what to believe! 
+Assuming those with the most intelligence are in a position to control the world the best, the masses will not know what to believe. How convenient for the corrupt! We seem to have little if any recourse. This is perfectly consistent with the earlier aforementioned vulnerability examples. We will never know what to believe! 
 
-In any case, reliable information is imperative for individual survival. The public continues to be fed baloney. We are accustomed to binary, good-cop, bad-cop thinking, when life often has many layers; many out of the grasp of most. 
+In any case, reliable information is imperative for individual survival. The public continues to be fed baloney. We are accustomed to binary, good-cop, bad-cop thinking. Truth often has many layers; many out of the grasp of most. 
 
-Regarding any real disclosure, if you are going to drip information to prevent hysteria, each drip must be true. Everything needs to add up: past, present, and future. Otherwise, it all looks like one big psyop or suspiciously careless management of what portends to be the most significant event in human history. A "mass novelty event," sooner than later, based on the full truth, may be our best play. As of yet, I see no solid evidence for a benign alien intervention. Thus far, any suggestions of the sort that I have come across look suspect.
+Regarding any real disclosure, if you are going to drip the information to prevent hysteria, each drip must be true. Everything needs to add up: past, present, and future. Otherwise, it all looks like one big psyop or suspiciously careless management of what portends to be the most significant event in human history. A "mass novelty event," sooner than later, based on the full truth, may be our best play. As of yet, I see no solid evidence for a benign alien intervention. Thus far, any suggestions of the sort that I have come across look suspect.
 
-My fellow Americans, join me in ignorance: behold the heavens (or hells – to be determined) through our great nation's lens of plausible deniability, history of deception, and preservation of special interests.
+My fellow Americans, join me in ignorance: behold the heavens (or hells – to be determined) through our great nation's lens of plausible deniability, history of deception, and preservation of special interests. We should consider the 7.53+ billion of us are cosmically regarded as debilitated monkey people, unable to overcome our inherently flawed nature, regularly at conflict, whose affairs are observed and manipulated by an incomprehensibly acute alien intelligence.
 
 ---
 
