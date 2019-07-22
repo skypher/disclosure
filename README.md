@@ -78,6 +78,8 @@ The US government has acquired or forged the gift of prophecy – unprecedented 
 
 Hypothetical vulnerability examples:
 
+> "The aliens need our help..."
+
 > "Aliens saved us from [catastrophic solar activity] on [July 2, 2019]. We can trust them."
 
 > "In exchange for alien technology that will save the world, we must do [X]."
