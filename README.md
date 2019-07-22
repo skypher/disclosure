@@ -14,9 +14,9 @@ Do not share classified information. All information is to be considered specula
 
 To promote contributor safety and project growth, attribution is kindly requested.
 
-For simplicity, I use the terms "alien" or "ET" to describe non-human advanced intelligence.
-
 For posterity, Keanu Reeves is associated with this project. Mr. Reeves is known by millions. He has a good and honest reputation. Should I experience harm, he may speak out, even to disassociate himself, which increases awareness of this project.
+
+For simplicity, I use the terms "alien" or "ET" to describe non-human advanced intelligence.
 
 ---
 
