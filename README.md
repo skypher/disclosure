@@ -266,7 +266,7 @@ Assuming those with the most intelligence are in a position to control the world
 
 ## Conclusion
 
-In any case, reliable information is imperative for individual survival. The public continues to be fed baloney. We are accustomed to binary, good-cop, bad-cop thinking. Truth often has many layers; many out of the grasp of most. 
+In any case, reliable information is imperative for individual survival. The public continues to be fed baloney. We are accustomed to binary, good-cop, bad-cop thinking. Truth often has many layers; many beyond common grasp.
 
 Regarding any real disclosure, if you are going to drip the information to prevent hysteria, each drip must be true. Everything needs to add up: past, present, and future. Otherwise, it all looks like one big psyop or suspiciously careless management of what portends to be the most significant event in human history. A "mass novelty event," sooner than later, based on the full truth, may be our best play. As ridiculous as it sounds, Keanu Reeves may be the best person to deliver the news. The public deems him trustworthy. On-screen, we have seen him bravely contend with and triumph in a new and disturbing reality.
 
