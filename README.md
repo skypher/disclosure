@@ -20,7 +20,9 @@ For posterity, Keanu Reeves is associated with this project. Mr. Reeves is known
 
 ---
 
-## On a non-fiction TV show, a former US counter-intelligence officer visited a foreign government, procured a method to communicate with aliens, and upon his return home, provided the alien communication secrets to active US military officers?
+## Truth is stranger than fiction
+
+### On a non-fiction TV show, a former US counter-intelligence officer visited a foreign government, procured a method to communicate with aliens, and upon his return home, provided the alien communication secrets to active US military officers?
 
 Unidentified, a History network television program, aired its final seasonal episode (S01E06) July 5, 2019. The show focused on UAP (Unidentified Aerial Phenomena aka UFOs) encountered by former and current military personnel. Episodes are available via history.com and amazon.com.
 
@@ -64,7 +66,7 @@ Do you see a huge problem? As described next, we become more vulnerable, we do n
 
 ---
 
-## The problem: alien communication, possible or not, opens Pandora's box and allows the government to say and do practically anything.
+### The problem: alien communication, possible or not, opens Pandora's box and allows the government to say and do practically anything.
 
 **Considering the recent disclosure pace, what would stop the government from soon claiming aliens communicated important information?** How could we, the people, verify such communication if the technology is secret? Is there going to be an open-source effort? Probably not, because the government would likely not want people talking with aliens for multiple reasons (some truly benign). Therefore, we the people will likely always be in a position to trust the government to speak for aliens.
 
