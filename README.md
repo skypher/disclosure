@@ -162,7 +162,7 @@ Crop circles:
 * Provide significant logistical difficulty to suppress. Crop circles occur in open fields. Local reporters, farmers, bystanders, etc. can easily proliferate pictures.
 * Are a relatively recent occurrence as of ~1978: https://allthatsinteresting.com/crop-circles. 
 
-An authentic crop circle is one beyond reasonable human capability with due research. Read this analysis: http://www.cropcircleconnector.com/2017/cherhill/comments.html. Into hard science/physics? Read further about Sw J1644+57 here: https://en.wikipedia.org/wiki/GRB_110328A. What are the odds? What about the timeframe? Next, watch this video: https://www.youtube.com/watch?v=CGO5aNx2hos. Is he deceiving you?
+An authentic crop circle is one beyond reasonable human capability with due research. Read this analysis: http://www.cropcircleconnector.com/2017/cherhill/comments.html. Into hard science/physics? Read further about Sw J1644+57 here: https://en.wikipedia.org/wiki/GRB_110328A. What are the odds? What about the timeframe? Next, watch this video: https://www.youtube.com/watch?v=CGO5aNx2hos. Is he deceiving you? You may want to periodically check the directory at http://www.cropcircleconnector.com/2019/ for new developments.
 
 ### Why hasn't the government tried creating "outbound" crop circles with live streaming video for the world to watch?
 
