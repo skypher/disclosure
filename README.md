@@ -114,6 +114,8 @@ Hypothetical vulnerability examples:
 
 **Use your imagination. Real or otherwise, the US government will essentially be whispering to gods, or claim to be, which may be worse. The situation allows for perfect proxy warfare.** How do we know aliens will not show up and set the record straight via force? As it stands, UAP buzz naval fleets in an intimidating fashion and have interfered with missile systems. They are playing with fire.
 
+---
+
 ## Food for thought
 
 * Disclosure does not appear to be an elaborate fiasco to drum up support for a space force. For example, Unidentified would have been a perfect opportunity to embolden such a plan. Also, TTSA and unaffiliated experts agree that we are too far behind to defeat them. And recently, when asked about aliens, Trump has ignored opportunities to promote a space force and defense spending.
