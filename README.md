@@ -24,7 +24,7 @@ For simplicity, I use the terms "alien" or "ET" to describe non-human advanced i
 
 ### So on a non-fiction TV show, a former US counter-intelligence officer visited a foreign government, procured a method to communicate with aliens, and upon his return home, provided the alien communication secrets to active US military officers?
 
-Yes, that happened.
+Yes, that actually happened.
 
 Unidentified, a History network television program, aired its final seasonal episode (S01E06) July 5, 2019. The show focused on UAP (Unidentified Aerial Phenomena aka UFOs) encountered by former and current military personnel. Later, I describe why Unidentified must be sanctioned by the DoD (U.S. Department of Defense). Episodes are available via history.com and amazon.com.
 
