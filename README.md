@@ -68,6 +68,8 @@ Do you see a huge problem? As described next, we become more vulnerable, we do n
 
 ---
 
+## Pandora's box
+
 ### The problem: alien communication, possible or not, opens Pandora's box and allows the government to say and do practically anything.
 
 **Considering the recent disclosure pace, what would stop the government from soon claiming aliens communicated important information?** How could we, the people, verify such communication if the technology is secret? Is there going to be an open-source effort? Probably not, because the government would likely not want people talking with aliens for multiple reasons (some truly benign). Therefore, we the people will likely always be in a position to trust the government to speak for aliens.
@@ -111,8 +113,6 @@ Hypothetical vulnerability examples:
 > "People of [country]: after decades of research, our great scientists and engineers have learned to communicate with alien intelligence. [America's] claims are simply false. Bear witness to the truth. Unite! Our moment of glory is upon us!"
 
 **Use your imagination. Real or otherwise, the US government will essentially be whispering to gods, or claim to be, which may be worse. The situation allows for perfect proxy warfare.** How do we know aliens will not show up and set the record straight via force? As it stands, UAP buzz naval fleets in an intimidating fashion and have interfered with missile systems. They are playing with fire.
-
----
 
 ## Food for thought
 
@@ -193,6 +193,8 @@ Aliens: come out with it, or it looks like you are propagandizing the public, po
 
 Again, the 500D chess scenario prevails.
 
+---
+
 ## Possibilities are conspiracies
 
 The trust paradox continues. We may never truly know if there are any "good guys." The Alien Intervention Table is mostly grim. Full disclosure is our best shot at discerning the good from the bad. As time goes on and disclosure probably continues, aliens and their technology will be even more at the forefront of public awareness. The risk for hysteria increases, unless of course, the government has reasons not to care about panic: maybe we are all going to be dead soon, anyway. Maybe they have good news but want to hold back on the good news because they want to run a psyop first. I do not like the prospects considering the frequency of alien abductions and mutilation reports.
@@ -257,6 +259,8 @@ You can bet intelligence agencies and intelligent people know the above. Hence t
 AIs and surveillance systems continue to advance. Human identify spoofing technology is improving via deepfakes and speech replication. Elon Musk and co. are improving Neurolink while he develops spacefaring tech. Despite (3) above (aka the potential development of the most powerful weapon, ever), the U.S. government currently does not regulate AI development. Isn't that a bit suspicious? Will Musk et al. never venture to create a technology that enhances intelligence itself for no purpose other than the otherwise innocuous pursuit of human survival? This is in the best interest of everyone, yet he will be in the position to decide who becomes god first. Do you see how that can go wrong?
 
 Assuming those with the most intelligence are in a position to control the world the best, the masses will not know what to believe. How convenient for the corrupt! We seem to have little if any recourse. This is perfectly consistent with the earlier aforementioned vulnerability examples. We will never know what to believe! 
+
+---
 
 ## Conclusion
 
