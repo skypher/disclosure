@@ -242,7 +242,7 @@ Though religious words are divisive, here are "four prophecies" for our time tha
 1. Barring the unforeseen, maximum intelligence applied maximally wins maximally.
 2. The average person cannot make informed decisions due to limited information, time, or ability.
 3. The first person or group to scale AI exponentially owns the world.
-4. Effective mind control or influence is undetectable to lesser intelligence (humans) .
+4. Effective mind control or influence is undetectable to lesser intelligence.
 
 *Has the average person come across an alien message with the above sentiments? No.*
 
