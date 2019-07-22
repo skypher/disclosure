@@ -78,7 +78,7 @@ How dangerous and sustainable is that? Can you imagine a situation in which the 
 
 We have been compromised. TTSA and the government need to swiftly "come correct." Pandora's box is open. Lack of critical thinking, cognitive dissonance, distraction, and alternative media focus will only slow public awareness for so long. Humans have a propensity for contagious fear.
 
-## Important: it does not matter if you believe in or are skeptical of UAP, aliens, or the government's ability to communicate with them. The fact is, the government will soon be in a position to say, "Advanced intelligence told us X, and they could harm us, so we must do Y."
+### Important: it does not matter if you believe in or are skeptical of UAP, aliens, or the government's ability to communicate with them. The fact is, the government will soon be in a position to say, "Advanced intelligence told us X, and they could harm us, so we must do Y."
 
 The US government has acquired or forged the gift of prophecy – unprecedented carte blanche via an alien pen that could well dictate our future. Do you believe everyone in the government, present and future, will just leave that pen in the drawer? Do you think US adversaries will not make similar claims?
 
