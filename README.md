@@ -156,6 +156,7 @@ For a moment, consider that crop fields are actually a wise communication medium
 
 Crop circles:
 
+* Continue to appear with regularity around the world. See http://cropcircleconnector.com/2019/2019.html.
 * Are a form of testable visual communication. Pictures are great for distribution and analysis. Communication through our other senses would be temporary, more subjective, startling, confusing, or hold little useful information. 
 * Are accessible. In comparison, alien radio signals would be received by a select few and could be more readily suppressed or manipulated.
 * Appear most often in crop fields. Crop fields exist throughout the world. They maintain structure over time. We can look for hoaxes. Desert sand, clouds, etc. are more ephemeral. 
