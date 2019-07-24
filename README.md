@@ -112,7 +112,7 @@ Hypothetical vulnerability examples:
 
 > "People of [country]: after decades of research, our great scientists and engineers have learned to communicate with alien intelligence. [America's] claims are simply false. Bear witness to the truth. Unite! Our moment of glory is upon us!"
 
-**Use your imagination. Real or otherwise, the US government will essentially be whispering to gods, or claim to be, which may be worse. The situation allows for perfect proxy warfare.** How do we know aliens will not show up and set the record straight via force? As it stands, UAP buzz naval fleets in an intimidating fashion and have interfered with missile systems. They are playing with fire.
+**Use your imagination. Real or otherwise, the US government will essentially be whispering to gods, or claim to be, which may be worse. The situation allows for perfect proxy warfare.** How do we know aliens will not show up and set the record straight via force? As it stands, UAP buzz naval fleets in an intimidating fashion and have interfered with missile systems.
 
 ---
 
