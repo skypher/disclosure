@@ -263,6 +263,20 @@ AIs and surveillance systems continue to advance. Human identify spoofing techno
 
 Assuming those with the most intelligence are in a position to control the world the best, the masses will not know what to believe. How convenient for the corrupt. We seem to have little if any recourse. This is perfectly consistent with the earlier aforementioned vulnerability examples. We will never know what to believe.
 
+### UAP potentially allows for the unification of religion and science
+
+1. Potentially, an observing and interventional advanced intelligence could be summoned when we point weapons of mass destruction at ourselves or each other with button-pushing intent or risk. Indeed, UAP is associated with interest in our mass destruction arsenal. Seemingly threatening UAP behavior could be an intervention or response of sorts. Such provocations ("ritual" or mission) would be highly classified.
+
+2. If we are subjects within a construction of advanced intelligence that largely evades detection, perhaps a mechanism exists for us to be puppeteered or significantly influenced to perform certain acts by that intelligence. Detection of such activity could be frequently minimized or masked by the greater advanced intelligence so that it is indistinguishable from common human acts. Often, the least amount of "energy" to cause an action may be used, perhaps at a mysterious constant (quantum) level. This would not prohibit macro advanced intelligence-driven events from occurring, such as UAP saucer crash with studiable technology. Perhaps some human innovation is a novel action by an advanced intelligence. As such, a "divine" idea may be "given" at a certain time to a certain person.
+
+3. UAP and other seemingly supernatural or paranormal events could well a mysterious, advanced intelligence doing exactly what it needs to at that time for unknown purposes. For example, the purpose of some sightings, particularly those with lights, may be no more than for purposes of human awareness and rippling effects, where applicable. 
+
+4. If we reside within a construction of advanced intelligence and are observed by advanced intelligence over time, given the relatively short duration of the human lifespan, it is conceivable that reincarnation or a different "unique human property transfer mechanism" could exist. In experiments, some unique variables may need to be kept the same. Conceivably, such a setup would automate, conserve, or conceal direct intervention.
+
+5. Man-made, unifying explanations for 1–4 above exist throughout various world religions. For example, in Hinduism:
+
+> "In Vaishnavism, Vishnu is identical to the formless metaphysical concept called Brahman, the supreme, the Svayam Bhagavan, who takes various avatars as 'the preserver, protector' whenever the world is threatened with evil, chaos, and destructive forces." See https://en.wikipedia.org/wiki/Vishnu.
+
 ---
 
 ## Conclusion
