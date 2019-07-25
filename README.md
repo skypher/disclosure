@@ -277,7 +277,7 @@ Assuming those with the most intelligence are in a position to control the world
 
 > "In Vaishnavism, Vishnu is identical to the formless metaphysical concept called Brahman, the supreme, the Svayam Bhagavan, who takes various avatars as 'the preserver, protector' whenever the world is threatened with evil, chaos, and destructive forces." See https://en.wikipedia.org/wiki/Vishnu.
 
-Indeed, some well-known UFOlogists have long suggested that UAP is a type of manifestation belonging to an advanced intelligence that prefers mystery.
+Indeed, some well-known UFOlogists have long suggested that UAP is a type of manifestation belonging to an advanced intelligence that prefers mystery. However, this does not preclude the 500D alien chess scenario or actions that we would describe as heinous.
 
 ---
 
