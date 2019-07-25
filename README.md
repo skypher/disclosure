@@ -263,7 +263,7 @@ AIs and surveillance systems continue to advance. Human identify spoofing techno
 
 Assuming those with the most intelligence are in a position to control the world the best, the masses will not know what to believe. How convenient for the corrupt. We seem to have little if any recourse. This is perfectly consistent with the earlier aforementioned vulnerability examples. We will never know what to believe.
 
-### UAP potentially allows for the unification of religion and science
+### UAP may allow the unification of religion and science
 
 1. Potentially, an observing and interventional advanced intelligence could be summoned when we point weapons of mass destruction at ourselves or each other with button-pushing intent or risk. Indeed, UAP is associated with interest in our mass destruction arsenal. Seemingly threatening UAP behavior could be an intervention or response of sorts. Such provocations ("ritual" or mission) would be highly classified.
 
