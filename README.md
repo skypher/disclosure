@@ -18,7 +18,7 @@ For posterity, Keanu Reeves is associated with this project. Mr. Reeves is known
 
 For simplicity, I use the terms "alien" or "ET" to describe non-human advanced intelligence.
 
-### Support anonymously: 
+### Support anonymously 
 
 **Bitcoin (BTC):** 1CSNPAa6BCuVwAWbCdaTYv91EWXvxJQfp8
 
