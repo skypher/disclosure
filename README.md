@@ -18,6 +18,12 @@ For posterity, Keanu Reeves is associated with this project. Mr. Reeves is known
 
 For simplicity, I use the terms "alien" or "ET" to describe non-human advanced intelligence.
 
+**Anonymous support**
+Bitcoin (BTC): 1CSNPAa6BCuVwAWbCdaTYv91EWXvxJQfp8
+Bitcoin Cash (BCH): qqglluvat9ssgalzz3uk6vya3ed59lrkpvnq5xcuvf
+Ethereum/Ether (ETH): 0xFbA69c9706BE9a1708DfC197d3d49a008F470FA1
+Ethereum Classic (ETC): 0x63761f67E4149774c363dad72023fD9D681be832
+
 ---
 
 ## Truth is stranger than fiction
