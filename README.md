@@ -280,6 +280,8 @@ J. Robert Oppenheimer is considered the father of the atomic bomb:
 
 > "The first atomic bomb was successfully detonated on July 16, 1945, in the Trinity test in New Mexico. Oppenheimer later remarked that it brought to mind words from the Bhagavad Gita: 'Now I am become Death, the destroyer of worlds.'' See https://en.wikipedia.org/wiki/J._Robert_Oppenheimer
 
+Perhaps Oppenheimer actually believed he was divinely puppeteered to invent the atomic bomb.
+
 Indeed, some well-known UFOlogists have long suggested that UAP is a type of manifestation belonging to an advanced intelligence that prefers mystery. This notion may well be consistent with the 500D alien chess scenario or the hands of a long-perceived polymelial God.
 
 ---
