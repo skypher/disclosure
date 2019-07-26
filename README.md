@@ -265,9 +265,9 @@ Assuming those with the most intelligence are in a position to control the world
 
 ### UAP may allow the unification of religion and science
 
-1. Potentially, an observing and interventional advanced intelligence could be summoned when we point weapons of mass destruction at ourselves or each other with button-pushing intent or risk. Indeed, UAP is associated with interest in our mass destruction arsenal. Seemingly threatening UAP behavior could be an intervention or response of sorts. Such provocations ("ritual" or mission) would be highly classified.
+1. Potentially, an observing and interventional advanced intelligence could be summoned when we point weapons of mass destruction at ourselves or each other with button-pushing intent or risk. Indeed, UAP is associated with interest in our mass destruction arsenal. Seemingly threatening UAP behavior could be an intervention or response of sorts. Such provocations/missions/rituals, would be highly classified.
 
-2. If we are subjects within a construction of advanced intelligence that largely evades detection, perhaps a mechanism exists for us to be puppeteered or significantly influenced to perform certain acts by that intelligence. Detection of such activity could be frequently minimized or masked by the greater advanced intelligence so that it is indistinguishable from common human acts. Often, the least amount of "energy" to cause an action may be used, perhaps at a mysterious constant (quantum) level. This would not prohibit macro advanced intelligence-driven events from occurring, such as UAP saucer crash with studiable technology. Perhaps some human innovation is a novel action by an advanced intelligence. As such, a "divine" idea may be "given" at a certain time to a certain person.
+2. If we are subjects within a construction of advanced intelligence that largely evades detection, perhaps a mechanism exists for us to be puppeteered or significantly influenced to perform certain acts by that intelligence. Detection of such activity could be frequently minimized or masked by the greater advanced intelligence so that it is indistinguishable from common human acts. Often, the least amount of "energy" to cause an action may be utilized, perhaps at a mysterious constant (quantum) level. This would not prohibit fabled macro alien-driven events from occurring, such as flying saucer crash with studiable technology. Indeed, perhaps some stimuli is induced alien novelty. As such, a "divine" idea or focus may be "given," directly or indirectly, at a certain time to a certain person. Perhaps some plausible alien application exists for events with extremely low probabilities or nearly impossible coincidences. Perhaps those with no history of a condition may spontaneously act contrary to long-established behaviors. However, one must be careful not to explain away all human acts as divine or alien. An experiment without variability (i.e. some human free will) would not be worth conducting. This "invisible hand" concept could allow for alien or divine curation of specific individuals, both political and prohpetical. Indeed, a world leader claiming "God told me..." may have semblance of truth, as dangerous as that is. This is a danger the public cannot dismiss due to limited understanding of the phenomena.
 
 3. UAP and other seemingly supernatural or paranormal events could well a mysterious, advanced intelligence doing exactly what it needs to at that time for unknown purposes. For example, the purpose of some sightings, particularly those with lights, may be no more than for purposes of human awareness and rippling effects, where applicable. 
 
@@ -277,7 +277,12 @@ Assuming those with the most intelligence are in a position to control the world
 
 > "In Vaishnavism, Vishnu is identical to the formless metaphysical concept called Brahman, the supreme, the Svayam Bhagavan, who takes various avatars as 'the preserver, protector' whenever the world is threatened with evil, chaos, and destructive forces." See https://en.wikipedia.org/wiki/Vishnu.
 
-Indeed, some well-known UFOlogists have long suggested that UAP is a type of manifestation belonging to an advanced intelligence that prefers mystery. However, this does not preclude the 500D alien chess scenario or actions that we would describe as heinous.
+J. Robert Oppenheimer is considered the father of the atomic bomb:
+
+> "The first atomic bomb was successfully detonated on July 16, 1945, in the Trinity test in New Mexico. Oppenheimer later remarked that it brought to mind words from the Bhagavad Gita: 'Now I am become Death, the destroyer of worlds.'' See https://en.wikipedia.org/wiki/J._Robert_Oppenheimer
+
+
+Indeed, some well-known UFOlogists have long suggested that UAP is a type of manifestation belonging to an advanced intelligence that prefers mystery. However, this does not preclude the 500D alien chess scenario or the hands of a long-described polymelial God.
 
 ---
 
