@@ -1,6 +1,6 @@
 # Disclosure
 
-This project's purpose is to assist disclosure and evolution.
+This project's purpose is to reduce human suffering.
 
 ---
 
