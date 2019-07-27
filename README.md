@@ -202,6 +202,8 @@ Seemingly beyond human construction, yet such a vague warning for humanity. For 
 
 Regarding the idea that "good" and "bad" alien factions exist: why is there no "bad alien crop circle defacement campaign" for helpful crop circles?
 
+Similar to the crop circle, with the three recent "DoD-released" UAP videos, do actual alien vehicles pause to be photographed or captured on video? Did the government pilot alien technology for purposes of capturing the UAP video content to subert the public? Unfortunately, we cannot rule these options out, and the implications may be very dark.
+
 Aliens: come out with it, or it looks like you are propagandizing the public, possibly even more than the government. Or are you in cahoots?
 
 Again, the 500D chess scenario prevails.
@@ -235,7 +237,7 @@ What did Q post (#918) on March 10, 2018, at 2:05:58 PM EST?
 > Wait until you learn who has been talking to you here.
 > Q
 
-Surely, Q would have wanted to nip this whole pedogate thing in the bud. I hope that Q explains the reasoning behind waiting while countless children were harmed and how this is part of the "plan." If Q is a source for global good, should he not eventually denounce American exceptionalism, associations with a polarizing figure like President Trump, and incorporate more universal themes? Clearly, Q is using patriotism, religion, and alien mysticism to manipulate the masses for mostly unknown purposes and outright asking for "trust" along the way. In case Q followers are offended by this assertion, please consider that pursuit of truth that reasonably conflicts with Q does not make me, or anyone else, a "shill." Q, if truly for the people, should promote truth-seeking across the board, even if truth upends Q's own mission.
+Surely, Q would have wanted to nip this whole pedogate thing in the bud. I hope that Q explains the reasoning behind waiting while countless children were harmed and how this is part of the "plan." If Q is a source for global good, should he not eventually denounce American exceptionalism, associations with a polarizing figure like President Trump, and incorporate more universal themes? Clearly, Q is using patriotism, religion, and alien mysticism to manipulate the masses for mostly unknown purposes and outright asking for "trust" along the way. In case Q followers are offended by this assertion, please consider that pursuit of truth that reasonably conflicts with Q does not make me, or anyone else, a "shill." Q, if truly for the people, should promote truth-seeking across the board, even if truth upends Q's own mission. While most support the stoppage of evildoers, do you think Q will ever drop the PRISM/FISA/data center query approvals or any other official documentation that indicate proper checks and balances were followed? Or would Q prefer for us to ignore checks and balances? Is that inconvenient for Q or is there no more law? Has the NSA ordained itself arbiters of the future via an exploitive public compaign that uses low-hanging form patriotism mixed with religious and/or extraterrestrial undertones? Is Q a temporary service "just for catching the bady guys" or is this yet another means of suvbersion, domination, and control?
 
 Stay with me here. I know conspiracy talk often goes off the rails, but we must look at potentials. **Any forward-looking thought can be called a dirty conspiracy until it happens, then it is a fact.**
 
