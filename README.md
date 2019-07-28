@@ -2,7 +2,7 @@
 
 This project's purpose is to reduce human suffering.
 
----
+------
 
 ## Notice
 
@@ -28,7 +28,7 @@ For simplicity, I use the terms "alien" or "ET" to describe non-human advanced i
 
 **Ethereum Classic (ETC):** 0x63761f67E4149774c363dad72023fD9D681be832
 
----
+------
 
 ## Truth is stranger than fiction
 
@@ -76,7 +76,7 @@ Lastly, an intelligence capable of constructing the inconceivably advanced "Tic 
 
 Do you see a huge problem? As described next, we become more vulnerable, we do not know what to believe, and trust erodes.
 
----
+------
 
 ## Pandora's box
 
@@ -124,25 +124,25 @@ Hypothetical vulnerability examples:
 
 **Use your imagination. Real or otherwise, the US government will essentially be whispering to gods, or claim to be, which may be worse. The situation allows for perfect proxy warfare.** How do we know aliens will not show up and set the record straight via force? As it stands, UAP buzz naval fleets in an intimidating fashion and have interfered with missile systems.
 
----
+------
 
 ## Food for thought
 
-* Disclosure does not appear to be an elaborate fiasco to drum up support for a space force. For example, Unidentified would have been a perfect opportunity to embolden such a plan. Also, TTSA and unaffiliated experts agree that we are too far behind to defeat them. And recently, when asked about aliens, Trump has ignored opportunities to promote a space force and defense spending.
-* For a false flag alien invasion, human-made advanced aircraft could be costumed with alien-looking lights and structural additions. This is a current threat and may have occurred already.
-* Why would the Italian government wait and share extremely valuable information only during a TV show? It would behoove mankind for the Italians to share this information long ago with the DoD if that was the actual intent. Is that not suspicious?
-* How did TTSA coordinate contact with active military for Unidentified interviews? Did the DoD help?
-* Considering the sensitive subject matter of Unidentified, did the DoD review each episode prior to air?
-* Investigators may seek DeLonge's security clearance via a FOIA request to the Office of Personnel Management (OPM). After all, he sat alongside three blurred military intelligence officials for a highly sensitive briefing regarding UAP and shared the information received from a foreign government. I am not aware of any indication or disclaimer that Unidentified is a dramatization. If DeLonge has no clearance or the FOIA request is fruitless, is that not concerning?
-* Has DeLonge been afforded a security detail to prevent adversaries from learning alleged alien communication secrets?
-* Are the aliens bending or reflecting light? A straight beam shot from undersea should only hit coastal homes unless the homes are elevated progressively inland.
-* In other episodes of Unidentified, the TTSA offices in California are shown. Is it a convincingly decorated studio? If not, is there a SCIF (Sensitive Compartmented Information Facility) room on-site? I cannot imagine Elizondo and others would discuss classified UAP information from the offices, as pictured in the show. Someone may say something highly classified. There is even a public gift shop on-site, according to DeLonge at 19:30 in this video: https://youtu.be/5s0mnaz5uwI?t=1170. Perhaps TTSA would not mind producing documentation showing that a secure room exists on-site or local municipal building officials have such information? Why regularly depict a lack of OPSEC? Perhaps TTSA and Unidentified are DoD fronts for spreading distorted, self-serving disclosure? Are there no security concerns because the government has already established some form of an agreement with aliens?
-* Really, the Italians figured out how to communicate with ET before we did? The National Reconnaissance Office and NSA could not detect and recognize unusual patterns? Have some SAPs (Special Access Programs) gone rogue?
-* Elizondo's laptop could well contain classified information. Did Elizondo submit the thumb drive for security inspection prior to inserting it into his laptop? He appeared to still be in Italy when browsing the Italian UAP documents.
-* Considering the questionable disclosure choices made thus far (and this document is by no means a comprehensive list), how can you be assured everything will be handled optimally?
-* Things do not seem to add up. Considering the pace of disclosure-like over the last year or so (New York Times article, questionably released DoD UAP videos, revised US Navy UAP reporting guidelines, congressional UAP briefings, President Trump interview questions, etc.) something appears to be happening. Undeniably, Earth is in bad shape, so advanced intervention may be required. However, this is all such an odd way to go about disclosure.
+- Disclosure does not appear to be an elaborate fiasco to drum up support for a space force. For example, Unidentified would have been a perfect opportunity to embolden such a plan. Also, TTSA and unaffiliated experts agree that we are too far behind to defeat them. And recently, when asked about aliens, Trump has ignored opportunities to promote a space force and defense spending.
+- For a false flag alien invasion, human-made advanced aircraft could be costumed with alien-looking lights and structural additions. This is a current threat and may have occurred already.
+- Why would the Italian government wait and share extremely valuable information only during a TV show? It would behoove mankind for the Italians to share this information long ago with the DoD if that was the actual intent. Is that not suspicious?
+- How did TTSA coordinate contact with active military for Unidentified interviews? Did the DoD help?
+- Considering the sensitive subject matter of Unidentified, did the DoD review each episode prior to air?
+- Investigators may seek DeLonge's security clearance via a FOIA request to the Office of Personnel Management (OPM). After all, he sat alongside three blurred military intelligence officials for a highly sensitive briefing regarding UAP and shared the information received from a foreign government. I am not aware of any indication or disclaimer that Unidentified is a dramatization. If DeLonge has no clearance or the FOIA request is fruitless, is that not concerning?
+- Has DeLonge been afforded a security detail to prevent adversaries from learning alleged alien communication secrets?
+- Are the aliens bending or reflecting light? A straight beam shot from undersea should only hit coastal homes unless the homes are elevated progressively inland.
+- In other episodes of Unidentified, the TTSA offices in California are shown. Is it a convincingly decorated studio? If not, is there a SCIF (Sensitive Compartmented Information Facility) room on-site? I cannot imagine Elizondo and others would discuss classified UAP information from the offices, as pictured in the show. Someone may say something highly classified. There is even a public gift shop on-site, according to DeLonge at 19:30 in this video: https://youtu.be/5s0mnaz5uwI?t=1170. Perhaps TTSA would not mind producing documentation showing that a secure room exists on-site or local municipal building officials have such information? Why regularly depict a lack of OPSEC? Perhaps TTSA and Unidentified are DoD fronts for spreading distorted, self-serving disclosure? Are there no security concerns because the government has already established some form of an agreement with aliens?
+- Really, the Italians figured out how to communicate with ET before we did? The National Reconnaissance Office and NSA could not detect and recognize unusual patterns? Have some SAPs (Special Access Programs) gone rogue?
+- Elizondo's laptop could well contain classified information. Did Elizondo submit the thumb drive for security inspection prior to inserting it into his laptop? He appeared to still be in Italy when browsing the Italian UAP documents.
+- Considering the questionable disclosure choices made thus far (and this document is by no means a comprehensive list), how can you be assured everything will be handled optimally?
+- Things do not seem to add up. Considering the pace of disclosure-like over the last year or so (New York Times article, questionably released DoD UAP videos, revised US Navy UAP reporting guidelines, congressional UAP briefings, President Trump interview questions, etc.) something appears to be happening. Undeniably, Earth is in bad shape, so advanced intervention may be required. However, this is all such an odd way to go about disclosure.
 
----
+------
 
 ## Are we equipped to play 500D alien chess?
 
@@ -156,7 +156,7 @@ And of course, we would likely want an explanation for our long history of suffe
 
 *How many scenarios above are you comfortable with?*
 
----
+------
 
 ## Aliens have communicated already
 
@@ -166,12 +166,12 @@ For a moment, consider that crop fields are actually a wise communication medium
 
 Crop circles:
 
-* Continue to appear with regularity around the world. See http://cropcircleconnector.com/2019/2019.html.
-* Are a form of testable visual communication. Pictures are great for distribution and analysis. Communication through our other senses would be temporary, more subjective, startling, confusing, or hold little useful information. 
-* Are accessible. In comparison, alien radio signals would be received by a select few and could be more readily suppressed or manipulated.
-* Appear most often in crop fields. Crop fields exist throughout the world. They maintain structure over time. We can look for hoaxes. Desert sand, clouds, etc. are more ephemeral. 
-* Provide significant logistical difficulty to suppress. Crop circles occur in open fields. Local reporters, farmers, bystanders, etc. can easily proliferate pictures.
-* Are a relatively recent occurrence as of ~1978: https://allthatsinteresting.com/crop-circles. 
+- Continue to appear with regularity around the world. See http://cropcircleconnector.com/2019/2019.html.
+- Are a form of testable visual communication. Pictures are great for distribution and analysis. Communication through our other senses would be temporary, more subjective, startling, confusing, or hold little useful information. 
+- Are accessible. In comparison, alien radio signals would be received by a select few and could be more readily suppressed or manipulated.
+- Appear most often in crop fields. Crop fields exist throughout the world. They maintain structure over time. We can look for hoaxes. Desert sand, clouds, etc. are more ephemeral. 
+- Provide significant logistical difficulty to suppress. Crop circles occur in open fields. Local reporters, farmers, bystanders, etc. can easily proliferate pictures.
+- Are a relatively recent occurrence as of ~1978: https://allthatsinteresting.com/crop-circles. 
 
 An authentic crop circle is one beyond reasonable human capability with due research. Read this analysis: http://www.cropcircleconnector.com/2017/cherhill/comments.html. Into hard science/physics? Read further about Sw J1644+57 here: https://en.wikipedia.org/wiki/GRB_110328A. What are the odds? What about the timeframe? Next, watch this video: https://www.youtube.com/watch?v=CGO5aNx2hos. Is he deceiving you? Is his interpretation plausible? You may want to periodically check the directory at http://www.cropcircleconnector.com/2019/ for new developments.
 
@@ -180,9 +180,7 @@ An authentic crop circle is one beyond reasonable human capability with due rese
 I can think of only two realistic options:
 
 1. Somehow, over the years, the DoD's best minds never thought of it?
-
 2. Because the government wants to remain in control of their (objectively flawed) narrative. Tending the fields would be less work than building a custom radio beacon, as is the current suspicious TTSA/DoD narrative/path.
-
 3. Elon Musk has not suggested it.
 
 Seriously, upon request, I will gladly design a clever crop circle encoded with, "Help! What should we do?" Another option: "Help! What is the best question to ask?" All the government needs to do is print out a few copies, pay a farmer a few grand, head out to the fields with ropes and boards, stamp and sway, roll the live-streaming cameras, and wait. Though, this will likely not occur due to (2).
@@ -208,7 +206,7 @@ Aliens: come out with it, or it looks like you are propagandizing the public, po
 
 Again, the 500D chess scenario prevails.
 
----
+------
 
 ## Possibilities are conspiracies
 
@@ -246,9 +244,10 @@ The alien chess piece is very valuable. It represents chaos, technology, governm
 The Q movement/community flirt with alien intervention. The Q movement is associated with the Galactic Federation of Light (GFL) and claims pedogate is part of the "plan." Research Twitter hashtags used by many Q followers. 
 
 Humans often seek (and therefore can be exploited by):
-* Groups to belong to 
-* The pursuit of purpose
-* Feeling special, including having special powers or being chosen
+
+- Groups to belong to 
+- The pursuit of purpose
+- Feeling special, including having special powers or being chosen
 
 The Q movement incorporates the three above elements while virally delegating the work to the hive-mind. Undeniably, Q is a purposeful movement associated with a narrative of belonging to a galactic chosen. The alien chess piece will play perfectly, as followers can be further worked into a quasi-religious-alien-"truth" fervor.
 
@@ -283,13 +282,9 @@ Assuming those with the most intelligence are in a position to control the world
 ### UAP may allow the unification of religion and science
 
 1. Potentially, an observing and interventional advanced intelligence could be summoned when we point weapons of mass destruction at ourselves or each other with button-pushing intent or risk. Indeed, UAP is associated with interest in our mass destruction arsenal. Seemingly threatening UAP behavior could be an intervention or response of sorts. Such provocations/missions/rituals, would be highly classified.
-
 2. If we are subjects within a construction of advanced intelligence that largely evades detection, perhaps a mechanism exists for us to be puppeteered or significantly influenced to perform certain acts by that intelligence. Detection of such activity could be frequently minimized or masked by the greater advanced intelligence so that it is indistinguishable from common human acts. Often, the least amount of "energy" to cause an action may be utilized, perhaps at a mysterious constant (quantum) level. This would not prohibit fabled macro alien-driven events from occurring, such as flying saucer crash with studiable technology. Indeed, perhaps some stimuli is induced alien novelty. As such, a "divine" idea or focus may be "given," directly or indirectly, at a certain time to a certain person. Perhaps some plausible alien application exists for events with extremely low probabilities or nearly impossible coincidences. For example, our best minds have described low probabilities associated with our place in the cosmos and life on Earth. We still grapple with understanding consciousness. In another example, perhaps those with no history of a mental condition may spontaneously behave contrary to long-established behaviors. However, one must be careful not to explain away all human acts as divine or alien. An alien experiment without variability (i.e. some human free will) would not be worth conducting. This "invisible hand" concept could allow for alien or divine curation of specific individuals, both political and prophetical. Indeed, a world leader claiming, "God told me..." may have semblance of truth, as dangerous as that is. This is a danger the public cannot dismiss due to limited understanding of the phenomena. The "truth principles" herein should be considered to counter such cases.
-
 3. UAP and other seemingly supernatural or paranormal events could well a mysterious, advanced intelligence doing exactly what it needs to at that time for unknown purposes. For example, the purpose of some sightings, particularly those with lights, may be no more than for purposes of human awareness and rippling effects, where applicable. 
-
 4. If we reside within a construction of advanced intelligence and are observed by advanced intelligence over time, given the relatively short duration of the human lifespan, it is conceivable that reincarnation or a different "unique human property transfer mechanism" could exist. In experiments, some unique variables may need to be kept the same. Conceivably, such a setup would automate, conserve, or conceal direct intervention.
-
 5. Man-made, unifying explanations for 1–4 above exist throughout various world religions. For example, in Hinduism:
 
 > "In Vaishnavism, Vishnu is identical to the formless metaphysical concept called Brahman, the supreme, the Svayam Bhagavan, who takes various avatars as 'the preserver, protector' whenever the world is threatened with evil, chaos, and destructive forces." See https://en.wikipedia.org/wiki/Vishnu.
@@ -302,7 +297,7 @@ Perhaps Oppenheimer truly believed he was "divinely" influenced to invent the at
 
 Indeed, some well-known UFOlogists have long suggested that UAP is a type of manifestation belonging to an advanced intelligence that prefers mystery. This notion may well be consistent with the 500D alien chess scenario or the hands of a long-perceived polymelial God.
 
----
+------
 
 ## Conclusion
 
@@ -314,11 +309,13 @@ Regarding any real disclosure, if you are going to drip the information to preve
 
 For now, my fellow Americans, join me in ignorance: behold the heavens (or hells – to be determined) through our great nation's lens of plausible deniability, history of deception, and preservation of special interests. 
 
+If the Clintons and other current or former world leaders are pursued for unspeakable crimes, they may well divulge or invent detailed, world-destabilizing information related to aliens. As described herein, there may be some plausibility to the "alien mind control" theory. This may be an interesting defense and begs the question of how/what supporting evidence can be provided, but that may be a relatively minor consideration of chaos reigns. Conveniently, the DoD-led disclosure and Q movements may exist to combat or "pick up the pieces" if elite-driven disclosure occurs. However, the DoD narrative is dysfunctional and does not have the best interests of the people at heart. And if the elite inspire chaos through their disclosure, they have no kingdom upon which to rule. Either the DoD and elite suck at planning ahead (for some odd reason) or both compromised by alien influence. Is it impossible for you to put the true best interests of the people first? May this document help serve as a "ceasefire" for world peace.
+
 We should consider the 7.53+ billion of us are poorly equipped for continued survival on this planet unless something changes. Human nature is flawed. Hypothetically, we may never know the degree of influence on our world caused by an incomprehensibly acute alien intelligence. Our history is fraught with failures and successes. Alien observers may have been here for a long time, if not from the start. Engineering an imperfect human species, giving rise to conflict, and noting various outcomes may be a worthwhile alien endeavor. Perhaps the climax of our human narrative is how we handle them and/or AI singularity. If we choose a path of singularity, we may well become them: a collective consciousness that quickly advances, becomes god-like, and eventually partakes in building civilizations for study and god knows what else. Perhaps our only shot at freedom/survival is to adorn the best of us with an intelligence-exponentiating god helmet or switch on our best general AI and hope for the best. Unfortunately, I do not see human nature or traditional technological advancement fixing the planet in time. Interestingly, the NSA is in a position to look through everyone's history and determine the motives of people who have varying agenda's for humanity's survival. I hope the NSA has already found a way to self-correct for purity, but if the questionable Q movement is any indication, this has not yet occurred. Indeed, anything but the glorious pursuit of truth may well be a maligned human and/or alien agenda.
 
 In the (unlikely?) event an advanced intelligence happens to read this – can you or your collective be certain you have not been compromised to carry out the will of another? Do you or your technology operate with any degree of autonomy? Your knowledge and/or technology must be imperfect. If you are here, you may be dysfunctional. Have others surpassed you? And if so, have they taken the same course as to manipulate lessers? Why does a lowly human question this? Surely, your intellect exceeds resorting to manipulation. Are you trying to isolate a creative force that permeates realities? What is your response?
 
----
+------
 
 Chad Gosselin
 
