@@ -261,11 +261,12 @@ At some point, Q or an official government source could say, "Q = aliens." Anoth
 
 Here are "truth principles" for our time that I came up with:
 
-1. Barring the unforeseen, maximum intelligence applied maximally wins maximally.
-2. The average person today cannot make truly informed decisions due to limited information, time, or ability.
-3. The first person or group to scale AI exponentially owns the world.
-4. Effective mind control or influence is undetectable to lesser intelligence. Therefore, if advanced alien technology exists, our leaders could be compromised by mind control or influence. Conceivably, our leaders would be the most targeted (especially when it comes to the disclosure of alien technology). Perhaps this explains the bizarre approach to disclosure thus far. Indeed, thoughts dealing with genuine truths or those opposing the prevention of mass human suffering would be most suspect. As such, those in power should seek out those capable of freer thought, as they may not be able to do anything about their compromised position.
-5. If any person experiences harm for speculative, free thought, the powers that be cannot rule out that they are pawns of advanced mind control or influence. Free thought should be protected. For this was the original conception of the United States and other nations and organizations.
+1. An unsustainable civilization invests in weapons and blackmail while expecting others not to do the same.
+2. As such, barring the unforeseen, maximum intelligence applied maximally "wins" maximally.
+3. The average person today cannot make truly informed decisions due to limited information, time, or ability.
+4. The first person or group to scale AI exponentially owns the world.
+5. Effective mind control or influence is undetectable to lesser intelligence. Therefore, if advanced alien technology exists, our leaders could be compromised by mind control or influence. Conceivably, our leaders would be the most targeted (especially when it comes to the disclosure of alien technology). Perhaps this explains the bizarre approach to disclosure thus far. Indeed, thoughts dealing with genuine truths or those opposing the prevention of mass human suffering would be most suspect. As such, those in power should seek out those capable of freer thought, as they may not be able to do anything about their compromised position.
+6. If any person experiences harm for speculative, free thought, the powers that be cannot rule out that they are pawns of advanced mind control or influence. Free thought should be protected. For this was the original conception of the United States and other nations and organizations.
 
 Has the average person come across an alien message with the above sentiments? No. Undoubtedly, a portion of the above would be really helpful to humanity right about now, but I doubt any such message will be clearly embedded into our crop fields. Instead, recent crop circles have focused on solar activity, the constellation of Leo, and questionable interpretations such as:
 
